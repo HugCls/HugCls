@@ -26,7 +26,7 @@
 <img align="left" alt="React" width="24px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/react/react.png" />
 <img align="left" alt="Ruby" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/7/73/Ruby_logo.svg" />
 <img align="left" alt="RoR" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/1/16/Ruby_on_Rails-logo.png" />
-<img align="left" alt="TypeScript" width="24px" src="https://commons.wikimedia.org/wiki/File:Typescript_logo_2020.svg">
+<img align="left" alt="TypeScript" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/4/4c/Typescript_logo_2020.svg"/>
 <img align="left" alt="Terminal" width="24px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/terminal/terminal.png" />   
 <br/>
 
