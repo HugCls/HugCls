@@ -2,7 +2,7 @@
 
 # Hi there, Welcome here! I'm Hugo 👋
 
-- 🤖 I am a great enthusiastic web developer!
+- 🤖 I am a great enthusiastic front-end web developer!
 - 🤓 I’m currently working on developing my skills. 
 - 🤝 I’m looking to collaborate with other developers on new projects !
 - 💬 Ask me about anything, let's talk ! 
@@ -11,7 +11,7 @@
 ### Connect with me:
 
 
-[<img align="left" alt="AnthonyLebro | LinkedIn" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
+[<img align="left" alt="HugoClaisse" | LinkedIn" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
 
 
 <br />
@@ -27,6 +27,7 @@
 <img align="left" alt="Ruby" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/7/73/Ruby_logo.svg" />
 <img align="left" alt="RoR" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/1/16/Ruby_on_Rails-logo.png" />
 <img align="left" alt="TypeScript" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/4/4c/Typescript_logo_2020.svg"/>
+<img align="left" alt="NextJS" width="24px" src="https://upload.wikimedia.org/wikipedia/commons/8/8e/Nextjs-logo.svg"/>
 <img align="left" alt="Terminal" width="24px" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/terminal/terminal.png" />   
 <br/>
 
