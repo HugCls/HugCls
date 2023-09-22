@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "Your goals are the road maps that guide you and show you what is possible for your life." - Les Brown
+2023-09-22: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
