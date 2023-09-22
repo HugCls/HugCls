@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "Go as far as you can see and you will see further.  " - Zig Ziglar
+2023-09-22: "Learn to use your emotions to think, not think with your emotions." - Robert Kiyosaki
