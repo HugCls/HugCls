@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "You may be disappointed if you fail, but you are doomed if you don't try." - Beverly Sills
+2023-09-22: "Live simply, expect little, give much." - Norman Vincent Peale
