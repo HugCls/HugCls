@@ -35,3 +35,6 @@
 
 [linkedin]: https://www.linkedin.com/in/hugo-claisse-b9a22a222/
 
+
+
+2023-09-22: "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results." - Peter Drucker
