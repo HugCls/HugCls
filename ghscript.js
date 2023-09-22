@@ -28,7 +28,7 @@ axios.get('https://zenquotes.io/api/random')
     // Écrire le nouveau contenu dans le fichier README.md
     writeFileSync('README.md', readme, 'utf8');
 
-    console.log('README.md a été mis à jour avec succès!');
+    console.log('README.md a été mis à jour avec succès!!');
   })
   .catch(error => {
     console.error(error);
