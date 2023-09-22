@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "Ask no questions, and you'll be told no lies." - Charles Dickens
+2023-09-22: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
