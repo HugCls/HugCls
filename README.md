@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "Ask no questions, and you'll be told no lies." - Charles Dickens
+2023-09-22: "Your goals are the road maps that guide you and show you what is possible for your life." - Les Brown
