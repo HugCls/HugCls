@@ -35,6 +35,6 @@
 
 [linkedin]: https://www.linkedin.com/in/hugo-claisse-b9a22a222/
 
+<br />
 
-
-2023-09-22: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
+### 2023-09-22: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
