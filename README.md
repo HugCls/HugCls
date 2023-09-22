@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy." - Sun Tzu
+2023-09-22: "Ask no questions, and you'll be told no lies." - Charles Dickens
