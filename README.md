@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "Cultivate the merry heart, develop the happiness habit, and life will become a continual feast." - Norman Vincent Peale
+2023-09-22: "You may be disappointed if you fail, but you are doomed if you don't try." - Beverly Sills
