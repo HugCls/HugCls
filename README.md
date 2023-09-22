@@ -37,4 +37,4 @@
 
 
 
-2023-09-22: "Live simply, expect little, give much." - Norman Vincent Peale
+2023-09-22: "Misfortune shows those who are not really friends." - Aristotle
