@@ -39,4 +39,4 @@
 
 ### 2023-09-22: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
 
-2023-09-25: "You cannot find peace avoiding life." - Virginia Woolf
+2023-09-26: "If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated." - Celestine Chua
