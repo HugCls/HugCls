@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "If you want to keep your memories, you first have to live them." - Bob Dylan
+2023-09-28: "The pen is the tongue of the mind. " - Miguel de Cervantes
