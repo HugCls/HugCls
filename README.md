@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "Any idea, plan, or purpose may be placed in the mind through repetition of thought." - Napoleon Hill
+2023-09-28: "To plant a garden is to believe in tomorrow.  " - Audrey Hepburn
