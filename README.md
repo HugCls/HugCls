@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "Success is like reaching an important birthday and finding you're exactly the same." - Audrey Hepburn
+2023-09-28: "Life is the art of drawing sufficient conclusions from insufficient premises." - Samuel Butler
