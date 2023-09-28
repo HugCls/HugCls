@@ -38,3 +38,5 @@
 <br />
 
 ### 2023-09-27: "Success is often achieved by those who don't know that failure is inevitable." - Coco Chanel
+
+2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
