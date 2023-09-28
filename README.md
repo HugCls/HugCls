@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "We suffer more often in imagination than in reality.  " - Seneca
+2023-09-28: "All leaders are readers." - Jim Rohn
