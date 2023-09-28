@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "Being ignorant is not so much a shame, as being unwilling to learn." - Benjamin Franklin
+2023-09-28: "I don't walk away from things that I think are unfinished." - Arnold Schwarzenegger
