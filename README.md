@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt." - Honore de Balzac
+2023-09-28: "Loving thoughts and actions are clearly beneficial for our physical and mental health." - Dalai Lama
