@@ -40,6 +40,3 @@
 
 
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
-
-
-2023-09-28: "Know yourself and you will win all battles." - Sun Tzu
