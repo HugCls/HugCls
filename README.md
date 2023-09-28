@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "Loving thoughts and actions are clearly beneficial for our physical and mental health." - Dalai Lama
+2023-09-28: "Better a diamond with a flaw than a pebble without one." - Chinese Proverb
