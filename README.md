@@ -40,3 +40,6 @@
 
 
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
+
+
+2023-09-28: "Progress lies not in enhancing what is, but in advancing toward what will be." - Kahlil Gibran
