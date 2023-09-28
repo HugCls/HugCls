@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "Numbing the pain for a while will make it worse when you finally feel it." - Albus Dumbledore
+2023-09-28: "Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt." - Honore de Balzac
