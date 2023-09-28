@@ -42,4 +42,4 @@
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
 
 
-2023-09-28: "The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way." - Robert Kiyosaki
+2023-09-28: "The goal of an artist is to create the definitive work that cannot be surpassed." - George Bernard Shaw
