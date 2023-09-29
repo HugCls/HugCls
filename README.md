@@ -40,3 +40,6 @@
 
 
 2023-09-28: "Life is not a problem to be solved, but a reality to be experienced." - Soren Kierkegaard
+
+
+2023-09-29: "Conquer the devils with a little thing called love." - Bob Marley
