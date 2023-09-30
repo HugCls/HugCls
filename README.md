@@ -41,4 +41,4 @@
 
 
 
-2023-09-29: "Conquer the devils with a little thing called love." - Bob Marley
+2023-09-30: "The greatest of empires, is the empire over one's self." - Publilius Syrus
