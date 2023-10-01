@@ -41,4 +41,4 @@
 
 
 
-2023-09-30: "The greatest of empires, is the empire over one's self." - Publilius Syrus
+2023-10-01: "Being a good example is the best form of service." - Sathya Sai Baba
