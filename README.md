@@ -41,4 +41,4 @@
 
 
 
-2023-10-01: "Being a good example is the best form of service." - Sathya Sai Baba
+2023-10-02: "Your business is not to 'get somewhere' - it is to be here." - Dan Millman
