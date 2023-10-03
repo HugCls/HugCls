@@ -41,4 +41,4 @@
 
 
 
-2023-10-02: "Your business is not to 'get somewhere' - it is to be here." - Dan Millman
+2023-10-03: "Fear of death is fear of the Unknown." - Adi Da Samraj
