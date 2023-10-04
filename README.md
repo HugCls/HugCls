@@ -41,4 +41,4 @@
 
 
 
-2023-10-03: "Fear of death is fear of the Unknown." - Adi Da Samraj
+2023-10-04: "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." - Deepak Chopra
