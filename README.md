@@ -41,4 +41,4 @@
 
 
 
-2023-10-05: "Love is the expression of one's values." - Ayn Rand
+2023-10-06: "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead." - Samuel Butler
