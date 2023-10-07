@@ -41,4 +41,4 @@
 
 
 
-2023-10-06: "To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead." - Samuel Butler
+2023-10-07: "Follow the man who seeks the truth; run from the man who has found it." - Vaclav Havel
