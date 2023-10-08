@@ -41,4 +41,4 @@
 
 
 
-2023-10-07: "Follow the man who seeks the truth; run from the man who has found it." - Vaclav Havel
+2023-10-08: "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly." - Marcus Aurelius
