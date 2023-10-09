@@ -41,4 +41,4 @@
 
 
 
-2023-10-08: "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly." - Marcus Aurelius
+2023-10-09: "Opportunities don't often come along. So, when they do, you have to grab them." - Audrey Hepburn
