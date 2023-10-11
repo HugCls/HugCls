@@ -41,4 +41,4 @@
 
 
 
-2023-10-10: "We win by helping each other win." - Jack Butcher
+2023-10-11: "Do not regret the past. Look to the future." - Soyen Shaku
