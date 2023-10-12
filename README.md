@@ -41,4 +41,4 @@
 
 
 
-2023-10-11: "Do not regret the past. Look to the future." - Soyen Shaku
+2023-10-12: "Quiet people have the loudest minds." - Stephen King
