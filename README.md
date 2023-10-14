@@ -41,4 +41,4 @@
 
 
 
-2023-10-13: "I put my heart and soul into my work, and I have lost my mind in the process." - Vincent van Gogh
+2023-10-14: "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do." - Elvis Presley
