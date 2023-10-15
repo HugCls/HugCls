@@ -41,4 +41,4 @@
 
 
 
-2023-10-14: "Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do." - Elvis Presley
+2023-10-15: "I will not walk backward in life." - J.R.R. Tolkien
