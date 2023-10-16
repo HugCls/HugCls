@@ -41,4 +41,4 @@
 
 
 
-2023-10-15: "I will not walk backward in life." - J.R.R. Tolkien
+2023-10-16: "Don't let the noise of others' opinions drown out your own inner voice." - Steve Jobs
