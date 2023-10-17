@@ -41,4 +41,4 @@
 
 
 
-2023-10-16: "Don't let the noise of others' opinions drown out your own inner voice." - Steve Jobs
+2023-10-17: "Life is like a wheel. Sooner or later, it always comes around to where you started again." - Stephen King
