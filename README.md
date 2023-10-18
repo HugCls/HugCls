@@ -41,4 +41,4 @@
 
 
 
-2023-10-17: "Life is like a wheel. Sooner or later, it always comes around to where you started again." - Stephen King
+2023-10-18: "In peace, sons bury their fathers. In war, fathers bury their sons. " - Herodotus
