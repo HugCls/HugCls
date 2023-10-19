@@ -41,4 +41,4 @@
 
 
 
-2023-10-18: "In peace, sons bury their fathers. In war, fathers bury their sons. " - Herodotus
+2023-10-19: "Winners never quit and quitters never win." - Vince Lombardi
