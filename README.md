@@ -41,4 +41,4 @@
 
 
 
-2023-10-19: "Winners never quit and quitters never win." - Vince Lombardi
+2023-10-20: "Do not wait for leaders; do it alone, person to person." - Mother Teresa
