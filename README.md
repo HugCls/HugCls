@@ -41,4 +41,4 @@
 
 
 
-2023-10-20: "Do not wait for leaders; do it alone, person to person." - Mother Teresa
+2023-10-21: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
