@@ -41,4 +41,4 @@
 
 
 
-2023-10-21: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
+2023-10-22: "The only way round is through." - Robert Frost
