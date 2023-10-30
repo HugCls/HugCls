@@ -13,7 +13,7 @@ jobs:
       - name: Checkout repository
         uses: actions/checkout@v2
         with:
-          token: ${{ secrets.README_TOKEN }}
+          token: ${{ secrets.GITHUB_TOKEN }}
 
       - name: Setup Node.js
         uses: actions/setup-node@v2
@@ -32,7 +32,7 @@ jobs:
           git config --global user.email 'superhugh92@gmail.com'
           git add README.md
           git commit -m "Update README with daily quote"
-          git push https://${{ secrets.README_TOKEN }}@github.com/HugCls/HugCls.git
+          git push https://${{ secrets.GITHUB_TOKEN }}@github.com/HugCls/HugCls.git
        
       
 
