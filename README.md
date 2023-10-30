@@ -41,4 +41,4 @@
 
 
 
-2023-10-22: "The only way round is through." - Robert Frost
+2023-10-30: "We create the world and ourselves;" - Ming-Dao Deng
