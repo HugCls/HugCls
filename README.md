@@ -41,4 +41,4 @@
 
 
 
-2023-10-31: "Leaders spend 5% of their time on the problem & 95% of their time on the solution. Get over it & crush it!" - Tony Robbins
+2023-11-01: "The biggest room in the world is the room for improvement." - Unknown
