@@ -41,4 +41,4 @@
 
 
 
-2023-11-01: "The biggest room in the world is the room for improvement." - Unknown
+2023-11-02: "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts." - Alfred Adler
