@@ -41,4 +41,4 @@
 
 
 
-2023-11-02: "It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts." - Alfred Adler
+2023-11-03: "Work harder on yourself than you do on your job." - Jim Rohn
