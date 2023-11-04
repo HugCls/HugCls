@@ -41,4 +41,4 @@
 
 
 
-2023-11-03: "Work harder on yourself than you do on your job." - Jim Rohn
+2023-11-04: "Make peace with your inner turmoil." - Unknown
