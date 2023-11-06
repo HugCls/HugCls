@@ -41,4 +41,4 @@
 
 
 
-2023-11-05: "Blessed is he who expects nothing, for he shall never be disappointed." - Alexander Pope
+2023-11-06: "Man is made by his belief. As he believes, so he is." - Bhagavad Gita
