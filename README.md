@@ -41,4 +41,4 @@
 
 
 
-2023-11-06: "Man is made by his belief. As he believes, so he is." - Bhagavad Gita
+2023-11-07: "If you can see it in your mind, you can hold it in your mind." - Steve Harvey
