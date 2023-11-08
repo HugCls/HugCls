@@ -41,4 +41,4 @@
 
 
 
-2023-11-07: "If you can see it in your mind, you can hold it in your mind." - Steve Harvey
+2023-11-08: "Definiteness of purpose is the starting point of all achievement. " - W. Clement Stone
