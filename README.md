@@ -41,4 +41,4 @@
 
 
 
-2023-11-08: "Definiteness of purpose is the starting point of all achievement. " - W. Clement Stone
+2023-11-09: "Fears are nothing more than a state of mind." - Napoleon Hill
