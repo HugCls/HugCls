@@ -41,4 +41,4 @@
 
 
 
-2023-11-10: "There is no significance in life without struggle." - Lolly Daskal
+2023-11-11: "People who bite the hand that feeds them usually lick the boot that kicks them." - Eric Hoffer
