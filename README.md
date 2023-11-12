@@ -41,4 +41,4 @@
 
 
 
-2023-11-11: "People who bite the hand that feeds them usually lick the boot that kicks them." - Eric Hoffer
+2023-11-12: "Your gift is something that you can do innately better than anything else." - Steve Harvey
