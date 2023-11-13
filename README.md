@@ -41,4 +41,4 @@
 
 
 
-2023-11-12: "Your gift is something that you can do innately better than anything else." - Steve Harvey
+2023-11-13: "If it's not broken, tinker with it till you find out how it works." - Bob Proctor
