@@ -41,4 +41,4 @@
 
 
 
-2023-11-13: "If it's not broken, tinker with it till you find out how it works." - Bob Proctor
+2023-11-14: "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him." - Gilbert Chesterton
