@@ -41,4 +41,4 @@
 
 
 
-2023-11-14: "The true soldier fights not because he hates what is in front of him, but because he loves what is behind him." - Gilbert Chesterton
+2023-11-15: "Turn your wounds into wisdom. " - Oprah Winfrey
