@@ -41,4 +41,4 @@
 
 
 
-2023-11-15: "Turn your wounds into wisdom. " - Oprah Winfrey
+2023-11-16: "The few who do are the envy of the many who only watch." - Jim Rohn
