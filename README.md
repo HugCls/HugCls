@@ -41,4 +41,4 @@
 
 
 
-2023-11-16: "The few who do are the envy of the many who only watch." - Jim Rohn
+2023-11-17: "We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world." - Gabor Mate
