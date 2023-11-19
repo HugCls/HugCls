@@ -41,4 +41,4 @@
 
 
 
-2023-11-18: "The best way to not feel hopeless is to get up and do something." - Barack Obama
+2023-11-19: "In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result." - James Allen
