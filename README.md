@@ -41,4 +41,4 @@
 
 
 
-2023-11-19: "In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result." - James Allen
+2023-11-20: "The man who removes a mountain begins by carrying away small stones." - William Faulkner
