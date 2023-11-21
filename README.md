@@ -41,4 +41,4 @@
 
 
 
-2023-11-20: "The man who removes a mountain begins by carrying away small stones." - William Faulkner
+2023-11-21: "A lie can travel half way around the world while the truth is putting on its shoes." - Mark Twain
