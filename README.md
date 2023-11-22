@@ -41,4 +41,4 @@
 
 
 
-2023-11-21: "A lie can travel half way around the world while the truth is putting on its shoes." - Mark Twain
+2023-11-22: "You need to be doing fewer things for more effect instead of doing more things with side effects." - Gary Keller
