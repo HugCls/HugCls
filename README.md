@@ -41,4 +41,4 @@
 
 
 
-2023-11-22: "You need to be doing fewer things for more effect instead of doing more things with side effects." - Gary Keller
+2023-11-23: "The businessman's tool is value." - Ayn Rand
