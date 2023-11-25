@@ -41,4 +41,4 @@
 
 
 
-2023-11-24: "Action is the foundational key to all success." - Pablo Picasso
+2023-11-25: "Be approximately right rather than exactly wrong." - John Tukey
