@@ -41,4 +41,4 @@
 
 
 
-2023-11-25: "Be approximately right rather than exactly wrong." - John Tukey
+2023-11-26: "Lost Time is never found again." - Benjamin Franklin
