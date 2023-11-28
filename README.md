@@ -41,4 +41,4 @@
 
 
 
-2023-11-27: "We meet ourselves time and again in a thousand disguises on the path of life." - Carl Jung
+2023-11-28: "Don't give up the fight, Stand up for your rights." - Bob Marley
