@@ -41,4 +41,4 @@
 
 
 
-2023-11-28: "Don't give up the fight, Stand up for your rights." - Bob Marley
+2023-11-29: "Difficult and meaningful will always bring more satisfaction than easy and meaningless." - Maxime Lagace
