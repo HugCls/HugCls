@@ -41,4 +41,4 @@
 
 
 
-2023-11-29: "Difficult and meaningful will always bring more satisfaction than easy and meaningless." - Maxime Lagace
+2023-11-30: "Opportunity often comes disguised in the form of misfortune or temporary defeat." - Napoleon Hill
