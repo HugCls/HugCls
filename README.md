@@ -41,4 +41,4 @@
 
 
 
-2023-11-30: "Opportunity often comes disguised in the form of misfortune or temporary defeat." - Napoleon Hill
+2023-12-01: "You are the only problem you will ever have and you are the only solution." - Bob Proctor
