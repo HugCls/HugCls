@@ -41,4 +41,4 @@
 
 
 
-2023-12-01: "You are the only problem you will ever have and you are the only solution." - Bob Proctor
+2023-12-02: "There is no value in anything until it is finished. " - Genghis Khan
