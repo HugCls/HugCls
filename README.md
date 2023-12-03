@@ -41,4 +41,4 @@
 
 
 
-2023-12-02: "There is no value in anything until it is finished. " - Genghis Khan
+2023-12-03: "Consider the rights of others before your own feelings, and the feelings of others before your own rights." - John Wooden
