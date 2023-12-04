@@ -41,4 +41,4 @@
 
 
 
-2023-12-03: "Consider the rights of others before your own feelings, and the feelings of others before your own rights." - John Wooden
+2023-12-04: "Never say never, because limits, like fears, are often just an illusion." - Michael Jordan
