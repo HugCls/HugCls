@@ -41,4 +41,4 @@
 
 
 
-2023-12-04: "Never say never, because limits, like fears, are often just an illusion." - Michael Jordan
+2023-12-05: "Everybody has talent, but ability takes hard work." - Michael Jordan
