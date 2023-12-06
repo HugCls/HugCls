@@ -41,4 +41,4 @@
 
 
 
-2023-12-05: "Everybody has talent, but ability takes hard work." - Michael Jordan
+2023-12-06: "Life does not get better by chance, it gets better by change." - Jim Rohn
