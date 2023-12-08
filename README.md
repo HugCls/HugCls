@@ -41,4 +41,4 @@
 
 
 
-2023-12-07: "Opportunity comes when you continually push forward." - Sonia Ricotti
+2023-12-08: "The giving of love is an education in itself." - Eleanor Roosevelt
