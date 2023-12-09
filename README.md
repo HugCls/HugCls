@@ -41,4 +41,4 @@
 
 
 
-2023-12-08: "The giving of love is an education in itself." - Eleanor Roosevelt
+2023-12-09: "Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to." - Carlos Ruiz Zafon
