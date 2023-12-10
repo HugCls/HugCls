@@ -41,4 +41,4 @@
 
 
 
-2023-12-09: "Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to." - Carlos Ruiz Zafon
+2023-12-10: "You're only given a little spark of madness. You mustn't lose it." - Robin Williams
