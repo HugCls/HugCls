@@ -41,4 +41,4 @@
 
 
 
-2023-12-10: "You're only given a little spark of madness. You mustn't lose it." - Robin Williams
+2023-12-11: "We tend to live up to our expectations." - Earl Nightingale
