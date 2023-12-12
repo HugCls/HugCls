@@ -41,4 +41,4 @@
 
 
 
-2023-12-11: "We tend to live up to our expectations." - Earl Nightingale
+2023-12-12: "We know nothing of tomorrow, our business is to be good and happy today." - Sydney Smith
