@@ -41,4 +41,4 @@
 
 
 
-2023-12-12: "We know nothing of tomorrow, our business is to be good and happy today." - Sydney Smith
+2023-12-13: "Nothing is particularly hard if you divide it into small jobs. " - Henry Ford
