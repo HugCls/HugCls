@@ -41,4 +41,4 @@
 
 
 
-2023-12-13: "Nothing is particularly hard if you divide it into small jobs. " - Henry Ford
+2023-12-14: "The meaning of life is to find your gift. The purpose of life is to give it away." - Pablo Picasso
