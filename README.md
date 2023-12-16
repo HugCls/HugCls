@@ -41,4 +41,4 @@
 
 
 
-2023-12-15: "A man who cannot tolerate small misfortunes can never accomplish great things." - Chinese Proverb
+2023-12-16: "Success on the outside means nothing unless you also have success within." - Robin Sharma
