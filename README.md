@@ -41,4 +41,4 @@
 
 
 
-2023-12-16: "Success on the outside means nothing unless you also have success within." - Robin Sharma
+2023-12-17: "I must also have a dark side if I am to be whole." - Carl Jung
