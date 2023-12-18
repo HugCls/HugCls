@@ -41,4 +41,4 @@
 
 
 
-2023-12-17: "I must also have a dark side if I am to be whole." - Carl Jung
+2023-12-18: "Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in." - Robert Greene
