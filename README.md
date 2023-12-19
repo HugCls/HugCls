@@ -41,4 +41,4 @@
 
 
 
-2023-12-18: "Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in." - Robert Greene
+2023-12-19: "One beam, no matter how big, cannot support an entire house on its own." - Chinese Proverb
