@@ -41,4 +41,4 @@
 
 
 
-2023-12-20: "Living life in style also means living a life of balance." - Jim Rohn
+2023-12-21: "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. " - Denis Waitley
