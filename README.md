@@ -41,4 +41,4 @@
 
 
 
-2023-12-21: "Change the changeable, accept the unchangeable, and remove yourself from the unacceptable. " - Denis Waitley
+2023-12-22: "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it." - Josh Waitzkin
