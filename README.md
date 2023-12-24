@@ -41,4 +41,4 @@
 
 
 
-2023-12-23: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
+2023-12-24: "Doubt is an uncomfortable condition, but certainty is a ridiculous one." - Voltaire
