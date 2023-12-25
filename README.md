@@ -41,4 +41,4 @@
 
 
 
-2023-12-24: "Doubt is an uncomfortable condition, but certainty is a ridiculous one." - Voltaire
+2023-12-25: "You can often change your circumstances by changing your attitude." - Eleanor Roosevelt
