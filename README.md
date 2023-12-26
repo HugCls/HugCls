@@ -41,4 +41,4 @@
 
 
 
-2023-12-25: "You can often change your circumstances by changing your attitude." - Eleanor Roosevelt
+2023-12-26: "We can change our lives. We can do, have, and be exactly what we wish." - Tony Robbins
