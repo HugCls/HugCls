@@ -41,4 +41,4 @@
 
 
 
-2023-12-26: "We can change our lives. We can do, have, and be exactly what we wish." - Tony Robbins
+2023-12-27: "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers." - Amelia Earhart
