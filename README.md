@@ -41,4 +41,4 @@
 
 
 
-2023-12-27: "The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers." - Amelia Earhart
+2023-12-28: "Meditate. It won't be fun but it will surface what you need to deal with." - Naval Ravikant
