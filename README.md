@@ -41,4 +41,4 @@
 
 
 
-2023-12-28: "Meditate. It won't be fun but it will surface what you need to deal with." - Naval Ravikant
+2023-12-29: "Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. " - Henry Ford
