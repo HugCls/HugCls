@@ -41,4 +41,4 @@
 
 
 
-2023-12-29: "Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. " - Henry Ford
+2023-12-30: "Wherever you are is the entry point." - Kabir
