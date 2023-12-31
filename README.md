@@ -41,4 +41,4 @@
 
 
 
-2023-12-30: "Wherever you are is the entry point." - Kabir
+2023-12-31: "He who can, does." - George Bernard Shaw
