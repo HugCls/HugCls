@@ -41,4 +41,4 @@
 
 
 
-2023-12-31: "He who can, does." - George Bernard Shaw
+2024-01-01: "The thing about smart people is that they seem like crazy people to dumb people." - Stephen Hawking
