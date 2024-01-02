@@ -41,4 +41,4 @@
 
 
 
-2024-01-01: "The thing about smart people is that they seem like crazy people to dumb people." - Stephen Hawking
+2024-01-02: "Instead of worrying about what you cannot control, shift your energy to what you can create." - Roy T. Bennett
