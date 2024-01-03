@@ -41,4 +41,4 @@
 
 
 
-2024-01-02: "Instead of worrying about what you cannot control, shift your energy to what you can create." - Roy T. Bennett
+2024-01-03: "The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now!" - Tony Robbins
