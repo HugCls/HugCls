@@ -41,4 +41,4 @@
 
 
 
-2024-01-03: "The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now!" - Tony Robbins
+2024-01-04: "No amount of regretting can change the past, and no amount of worrying can change the future." - Roy T. Bennett
