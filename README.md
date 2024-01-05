@@ -41,4 +41,4 @@
 
 
 
-2024-01-04: "No amount of regretting can change the past, and no amount of worrying can change the future." - Roy T. Bennett
+2024-01-05: "If you believe you can, you can. If you believe you can't, then, well you can't." - Celestine Chua
