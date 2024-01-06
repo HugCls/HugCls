@@ -41,4 +41,4 @@
 
 
 
-2024-01-05: "If you believe you can, you can. If you believe you can't, then, well you can't." - Celestine Chua
+2024-01-06: "Strategy is a commodity, execution is an art." - Peter Drucker
