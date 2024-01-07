@@ -41,4 +41,4 @@
 
 
 
-2024-01-06: "Strategy is a commodity, execution is an art." - Peter Drucker
+2024-01-07: "Sometimes letting things go is an act of far greater power than defending or hanging on." - Eckhart Tolle
