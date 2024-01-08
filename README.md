@@ -41,4 +41,4 @@
 
 
 
-2024-01-07: "Sometimes letting things go is an act of far greater power than defending or hanging on." - Eckhart Tolle
+2024-01-08: "If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed." - Mark Twain
