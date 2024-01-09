@@ -41,4 +41,4 @@
 
 
 
-2024-01-08: "If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed." - Mark Twain
+2024-01-09: "While some of us act without thinking, too many of us think without acting." - Dan Millman
