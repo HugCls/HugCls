@@ -41,4 +41,4 @@
 
 
 
-2024-01-09: "While some of us act without thinking, too many of us think without acting." - Dan Millman
+2024-01-10: "Relax. Nothing is under control." - Adi Da Samraj
