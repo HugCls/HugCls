@@ -41,4 +41,4 @@
 
 
 
-2024-01-11: "To know even one life has breathed easier because you have lived. This is to have succeeded." - Ralph Waldo Emerson
+2024-01-12: "Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it." - Gary Keller
