@@ -41,4 +41,4 @@
 
 
 
-2024-01-12: "Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it." - Gary Keller
+2024-01-13: "The wise warrior avoids the battle." - Sun Tzu
