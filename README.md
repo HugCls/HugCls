@@ -41,4 +41,4 @@
 
 
 
-2024-01-14: "Don't seek, don't search, don't ask, don't knock, don't demand - relax." - Osho
+2024-01-15: "What people need and what they want may be very different." - Elbert Hubbard
