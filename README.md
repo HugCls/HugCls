@@ -41,4 +41,4 @@
 
 
 
-2024-01-16: "The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings." - Henry Ward Beecher
+2024-01-17: "The only way round is through." - Robert Frost
