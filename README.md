@@ -41,4 +41,4 @@
 
 
 
-2024-01-17: "The only way round is through." - Robert Frost
+2024-01-18: "All leaders are readers." - Jim Rohn
