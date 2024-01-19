@@ -41,4 +41,4 @@
 
 
 
-2024-01-18: "All leaders are readers." - Jim Rohn
+2024-01-19: "If you change the way you look at things, the things you look at change. " - Wayne Dyer
