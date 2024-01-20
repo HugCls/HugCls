@@ -41,4 +41,4 @@
 
 
 
-2024-01-19: "If you change the way you look at things, the things you look at change. " - Wayne Dyer
+2024-01-20: "The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone. " - Orison Swett Marden
