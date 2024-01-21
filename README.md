@@ -41,4 +41,4 @@
 
 
 
-2024-01-20: "The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone. " - Orison Swett Marden
+2024-01-21: "A wise person should have money in their head, but not in their heart." - Jonathan Swift
