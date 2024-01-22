@@ -41,4 +41,4 @@
 
 
 
-2024-01-21: "A wise person should have money in their head, but not in their heart." - Jonathan Swift
+2024-01-22: "Stress happens when the mind resists what is." - Dan Millman
