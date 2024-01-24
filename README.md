@@ -41,4 +41,4 @@
 
 
 
-2024-01-23: "If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose." - Celestine Chua
+2024-01-24: "The hardest arithmetic to master is that which enables us to count our blessings." - Eric Hoffer
