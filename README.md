@@ -41,4 +41,4 @@
 
 
 
-2024-01-24: "The hardest arithmetic to master is that which enables us to count our blessings." - Eric Hoffer
+2024-01-25: "Art is to console those who are broken by life." - Vincent van Gogh
