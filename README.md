@@ -41,4 +41,4 @@
 
 
 
-2024-01-25: "Art is to console those who are broken by life." - Vincent van Gogh
+2024-01-26: "Focused, hard work is the real key to success." - John Carmack
