@@ -41,4 +41,4 @@
 
 
 
-2024-01-26: "Focused, hard work is the real key to success." - John Carmack
+2024-01-27: "For the things we have to learn before we can do them, we learn by doing them." - Aristotle
