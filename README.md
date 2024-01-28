@@ -41,4 +41,4 @@
 
 
 
-2024-01-27: "For the things we have to learn before we can do them, we learn by doing them." - Aristotle
+2024-01-28: "Constantly think about how you could be doing things better." - Elon Musk
