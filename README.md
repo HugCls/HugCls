@@ -41,4 +41,4 @@
 
 
 
-2024-01-28: "Constantly think about how you could be doing things better." - Elon Musk
+2024-01-29: "How to get more opportunity: Create more opportunity for others." - Jack Butcher
