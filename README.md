@@ -41,4 +41,4 @@
 
 
 
-2024-01-29: "How to get more opportunity: Create more opportunity for others." - Jack Butcher
+2024-01-30: "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things." - Celestine Chua
