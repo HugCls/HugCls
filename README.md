@@ -41,4 +41,4 @@
 
 
 
-2024-01-30: "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things." - Celestine Chua
+2024-01-31: "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. " - Margaret Mead
