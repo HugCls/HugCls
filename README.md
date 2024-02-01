@@ -41,4 +41,4 @@
 
 
 
-2024-01-31: "One of the oldest human needs is having someone to wonder where you are when you don't come home at night. " - Margaret Mead
+2024-02-01: "Stop being tormented by everyone else's reaction to you." - Joyce Meyer
