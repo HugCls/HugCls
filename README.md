@@ -41,4 +41,4 @@
 
 
 
-2024-02-01: "Stop being tormented by everyone else's reaction to you." - Joyce Meyer
+2024-02-02: "If we will be quiet and ready enough, we shall find compensation in every disappointment." - Henry David Thoreau
