@@ -41,4 +41,4 @@
 
 
 
-2024-02-02: "If we will be quiet and ready enough, we shall find compensation in every disappointment." - Henry David Thoreau
+2024-02-03: "Many a man has failed because he had his wishbone where his backbone should have been." - Ronald Reagan
