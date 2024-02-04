@@ -41,4 +41,4 @@
 
 
 
-2024-02-03: "Many a man has failed because he had his wishbone where his backbone should have been." - Ronald Reagan
+2024-02-04: "When you know what you want, and want it bad enough, you will find a way to get it." - Jim Rohn
