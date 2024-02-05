@@ -41,4 +41,4 @@
 
 
 
-2024-02-04: "When you know what you want, and want it bad enough, you will find a way to get it." - Jim Rohn
+2024-02-05: "The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace." - Ming-Dao Deng
