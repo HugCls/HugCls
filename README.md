@@ -41,4 +41,4 @@
 
 
 
-2024-02-05: "The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace." - Ming-Dao Deng
+2024-02-06: "It is better to fail in originality than to succeed in imitation." - Herman Melville
