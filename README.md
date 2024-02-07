@@ -41,4 +41,4 @@
 
 
 
-2024-02-06: "It is better to fail in originality than to succeed in imitation." - Herman Melville
+2024-02-07: "Just do what must be done. This may not be happiness but it is greatness." - George Bernard Shaw
