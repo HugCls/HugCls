@@ -41,4 +41,4 @@
 
 
 
-2024-02-07: "Just do what must be done. This may not be happiness but it is greatness." - George Bernard Shaw
+2024-02-08: "The more knowledge you have, the more you're free to rely on your instincts." - Arnold Schwarzenegger
