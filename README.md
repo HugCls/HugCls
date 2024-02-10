@@ -41,4 +41,4 @@
 
 
 
-2024-02-09: "It is not titles that honour men, but men that honour titles." - Niccolo Machiavelli
+2024-02-10: "The more you take responsibility for your past and present, the more you are able to create the future you seek." - Celestine Chua
