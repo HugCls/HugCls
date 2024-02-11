@@ -41,4 +41,4 @@
 
 
 
-2024-02-10: "The more you take responsibility for your past and present, the more you are able to create the future you seek." - Celestine Chua
+2024-02-11: "Don't give up on your dreams, or your dreams will give up on you." - John Wooden
