@@ -41,4 +41,4 @@
 
 
 
-2024-02-11: "Don't give up on your dreams, or your dreams will give up on you." - John Wooden
+2024-02-12: "Happiness is an effect of doing what you love, not an end goal to be achieved." - Celestine Chua
