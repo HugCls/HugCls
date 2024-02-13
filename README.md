@@ -41,4 +41,4 @@
 
 
 
-2024-02-12: "Happiness is an effect of doing what you love, not an end goal to be achieved." - Celestine Chua
+2024-02-13: "Charms strike the sight, but merit wins the soul." - Alexander Pope
