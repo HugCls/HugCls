@@ -41,4 +41,4 @@
 
 
 
-2024-02-13: "Charms strike the sight, but merit wins the soul." - Alexander Pope
+2024-02-14: "Learn from the rejection and turn it into an opportunity!" - Mary Engelbreit
