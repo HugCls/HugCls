@@ -41,4 +41,4 @@
 
 
 
-2024-02-14: "Learn from the rejection and turn it into an opportunity!" - Mary Engelbreit
+2024-02-15: "The older you get the stronger the wind gets - and it's always in your face." - Pablo Picasso
