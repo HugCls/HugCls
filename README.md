@@ -41,4 +41,4 @@
 
 
 
-2024-02-15: "The older you get the stronger the wind gets - and it's always in your face." - Pablo Picasso
+2024-02-16: "If you're not making mistakes, then you're not doing anything." - John Wooden
