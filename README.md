@@ -41,4 +41,4 @@
 
 
 
-2024-02-16: "If you're not making mistakes, then you're not doing anything." - John Wooden
+2024-02-17: "Children are our greatest natural resource." - Herbert Hoover
