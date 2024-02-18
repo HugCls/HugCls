@@ -41,4 +41,4 @@
 
 
 
-2024-02-17: "Children are our greatest natural resource." - Herbert Hoover
+2024-02-18: "Deeds will not be less valiant because they are upraised." - J.R.R. Tolkien
