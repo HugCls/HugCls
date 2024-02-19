@@ -41,4 +41,4 @@
 
 
 
-2024-02-18: "Deeds will not be less valiant because they are upraised." - J.R.R. Tolkien
+2024-02-19: "Where words fail, music speaks." - Hans Christian Andersen
