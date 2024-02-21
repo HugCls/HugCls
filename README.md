@@ -41,4 +41,4 @@
 
 
 
-2024-02-20: "May you live all the days of your life." - Jonathan Swift
+2024-02-21: "You need a plan to build a house. To build a life, it is even more important to have a plan or goal." - Zig Ziglar
