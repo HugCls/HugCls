@@ -41,4 +41,4 @@
 
 
 
-2024-02-21: "You need a plan to build a house. To build a life, it is even more important to have a plan or goal." - Zig Ziglar
+2024-02-22: "You don't know who is important to you until you actually lose them." - Mahatma Gandhi
