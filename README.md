@@ -41,4 +41,4 @@
 
 
 
-2024-02-22: "You don't know who is important to you until you actually lose them." - Mahatma Gandhi
+2024-02-23: "A crisis is an opportunity riding the dangerous wind." - Chinese Proverb
