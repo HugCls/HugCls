@@ -41,4 +41,4 @@
 
 
 
-2024-02-23: "A crisis is an opportunity riding the dangerous wind." - Chinese Proverb
+2024-02-24: "Don't spend major time on minor things." - Jim Rohn
