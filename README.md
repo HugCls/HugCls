@@ -41,4 +41,4 @@
 
 
 
-2024-02-25: "It is up to each of us to sing as we feel moved by the overall song of life." - Ming-Dao Deng
+2024-02-26: "Peace is letting it be. Letting life flow, letting emotions flow through you." - Kamal Ravikant
