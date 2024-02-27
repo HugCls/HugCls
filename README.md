@@ -41,4 +41,4 @@
 
 
 
-2024-02-26: "Peace is letting it be. Letting life flow, letting emotions flow through you." - Kamal Ravikant
+2024-02-27: "If you want peace, accept. If you want suffering, expect." - Maxime Lagace
