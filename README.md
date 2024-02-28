@@ -41,4 +41,4 @@
 
 
 
-2024-02-27: "If you want peace, accept. If you want suffering, expect." - Maxime Lagace
+2024-02-28: "Life is a gift. Never forget to enjoy and bask in every moment you are in." - Celestine Chua
