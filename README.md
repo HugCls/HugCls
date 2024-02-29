@@ -41,4 +41,4 @@
 
 
 
-2024-02-28: "Life is a gift. Never forget to enjoy and bask in every moment you are in." - Celestine Chua
+2024-02-29: "Success is getting what you want, happiness is wanting what you get." - W.P. Kinsella
