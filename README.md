@@ -41,4 +41,4 @@
 
 
 
-2024-02-29: "Success is getting what you want, happiness is wanting what you get." - W.P. Kinsella
+2024-03-01: "The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for." - Bob Marley
