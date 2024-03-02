@@ -41,4 +41,4 @@
 
 
 
-2024-03-01: "The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for." - Bob Marley
+2024-03-02: "To get angry is like to revenge yourself for the guilt of others." - Jonathan Swift
