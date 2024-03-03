@@ -41,4 +41,4 @@
 
 
 
-2024-03-02: "To get angry is like to revenge yourself for the guilt of others." - Jonathan Swift
+2024-03-03: "There are no secrets to success. It is the result of preparation, hard work, learning from failure." - Colin Powell
