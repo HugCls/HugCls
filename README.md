@@ -41,4 +41,4 @@
 
 
 
-2024-03-03: "There are no secrets to success. It is the result of preparation, hard work, learning from failure." - Colin Powell
+2024-03-04: "If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest." - Seungsahn
