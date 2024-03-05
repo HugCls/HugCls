@@ -41,4 +41,4 @@
 
 
 
-2024-03-04: "If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest." - Seungsahn
+2024-03-05: "Tis not too late to seek a newer world." - Heraclitus
