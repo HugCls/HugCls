@@ -41,4 +41,4 @@
 
 
 
-2024-03-05: "Tis not too late to seek a newer world." - Heraclitus
+2024-03-06: "If you chase two rabbits, you catch none." - Confucius
