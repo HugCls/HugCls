@@ -41,4 +41,4 @@
 
 
 
-2024-03-07: "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results." - Peter Drucker
+2024-03-08: "Sometimes things become possible if we want them bad enough." - T.S. Eliot
