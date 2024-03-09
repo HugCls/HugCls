@@ -41,4 +41,4 @@
 
 
 
-2024-03-08: "Sometimes things become possible if we want them bad enough." - T.S. Eliot
+2024-03-09: "We tend to live up to our expectations." - Earl Nightingale
