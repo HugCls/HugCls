@@ -41,4 +41,4 @@
 
 
 
-2024-03-12: "You're never too old for anything." - Betty White
+2024-03-13: "No valid plans for the future can be made by those who have no capacity for living now." - Alan Watts
