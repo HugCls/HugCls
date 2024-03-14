@@ -41,4 +41,4 @@
 
 
 
-2024-03-13: "No valid plans for the future can be made by those who have no capacity for living now." - Alan Watts
+2024-03-14: "Your heart is full of fertile seeds, waiting to sprout." - Morihei Ueshiba
