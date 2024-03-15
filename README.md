@@ -41,4 +41,4 @@
 
 
 
-2024-03-14: "Your heart is full of fertile seeds, waiting to sprout." - Morihei Ueshiba
+2024-03-15: "If you cannot understand something, then you have understood it incorrectly." - Kabir
