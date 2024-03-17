@@ -41,4 +41,4 @@
 
 
 
-2024-03-16: "When we strive to become better than we are, everything around us becomes better, too." - Paulo Coelho
+2024-03-17: "an action committed in anger is an action doomed to failure. " - Genghis Khan
