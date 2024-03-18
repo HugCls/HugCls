@@ -41,4 +41,4 @@
 
 
 
-2024-03-17: "an action committed in anger is an action doomed to failure. " - Genghis Khan
+2024-03-18: "If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you." - Paramahansa Yogananda
