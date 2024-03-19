@@ -41,4 +41,4 @@
 
 
 
-2024-03-18: "If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you." - Paramahansa Yogananda
+2024-03-19: "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse." - Alfred Adler
