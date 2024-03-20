@@ -41,4 +41,4 @@
 
 
 
-2024-03-19: "Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse." - Alfred Adler
+2024-03-20: "The most difficult times for many of us are the ones we give ourselves." - Pema Chodron
