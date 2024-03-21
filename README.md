@@ -41,4 +41,4 @@
 
 
 
-2024-03-20: "The most difficult times for many of us are the ones we give ourselves." - Pema Chodron
+2024-03-21: "The greatest test of courage on earth is to bear defeat without losing heart." - Robert Greene
