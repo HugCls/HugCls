@@ -41,4 +41,4 @@
 
 
 
-2024-03-21: "The greatest test of courage on earth is to bear defeat without losing heart." - Robert Greene
+2024-03-22: "The weak can never forgive. Forgiveness is the attribute of the strong." - Mahatma Gandhi
