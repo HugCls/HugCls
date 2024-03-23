@@ -41,4 +41,4 @@
 
 
 
-2024-03-22: "The weak can never forgive. Forgiveness is the attribute of the strong." - Mahatma Gandhi
+2024-03-23: "You give but little when you give of your possessions. It is when you give of yourself that you truly give." - Kahlil Gibran
