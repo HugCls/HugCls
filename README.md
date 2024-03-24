@@ -41,4 +41,4 @@
 
 
 
-2024-03-23: "You give but little when you give of your possessions. It is when you give of yourself that you truly give." - Kahlil Gibran
+2024-03-24: "Little minds have little worries, big minds have no time for worries." - Ralph Waldo Emerson
