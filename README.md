@@ -41,4 +41,4 @@
 
 
 
-2024-03-24: "Little minds have little worries, big minds have no time for worries." - Ralph Waldo Emerson
+2024-03-25: "Whenever you find yourself on the side of the majority, it is time to reform." - Mark Twain
