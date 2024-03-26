@@ -41,4 +41,4 @@
 
 
 
-2024-03-25: "Whenever you find yourself on the side of the majority, it is time to reform." - Mark Twain
+2024-03-26: "The only thing worse than being blind is having sight but no vision." - Helen Keller
