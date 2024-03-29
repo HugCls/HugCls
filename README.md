@@ -41,4 +41,4 @@
 
 
 
-2024-03-28: "Wise people, even though all laws were abolished, would still lead the same life." - Aristophanes
+2024-03-29: "The divine is not something high above us. It is in heaven, it is in earth, it is inside us." - Morihei Ueshiba
