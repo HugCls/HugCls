@@ -41,4 +41,4 @@
 
 
 
-2024-03-29: "The divine is not something high above us. It is in heaven, it is in earth, it is inside us." - Morihei Ueshiba
+2024-03-30: "Problems remain as problems because people are busy defending them rather than finding solutions." - Celestine Chua
