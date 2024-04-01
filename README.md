@@ -41,4 +41,4 @@
 
 
 
-2024-03-31: "You purchase pain with all that joy can give and die of nothing but a rage to live." - Alexander Pope
+2024-04-01: "Words are clothes that thoughts wear" - Samuel Butler
