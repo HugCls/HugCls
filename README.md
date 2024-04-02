@@ -41,4 +41,4 @@
 
 
 
-2024-04-01: "Words are clothes that thoughts wear" - Samuel Butler
+2024-04-02: "Animals don't hate, and we're supposed to be better than them." - Elvis Presley
