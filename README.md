@@ -41,4 +41,4 @@
 
 
 
-2024-04-02: "Animals don't hate, and we're supposed to be better than them." - Elvis Presley
+2024-04-03: "A dead thing can go with the stream, but only a living thing can go against it." - Gilbert Chesterton
