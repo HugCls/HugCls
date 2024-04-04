@@ -41,4 +41,4 @@
 
 
 
-2024-04-03: "A dead thing can go with the stream, but only a living thing can go against it." - Gilbert Chesterton
+2024-04-04: "Success is good at any age, but the sooner you find it, the longer you will enjoy it." - Napoleon Hill
