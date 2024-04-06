@@ -41,4 +41,4 @@
 
 
 
-2024-04-05: "Life begins where fear ends." - Osho
+2024-04-06: "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know." - Colin Powell
