@@ -41,4 +41,4 @@
 
 
 
-2024-04-06: "Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know." - Colin Powell
+2024-04-07: "Time is a game played beautifully by children." - Heraclitus
