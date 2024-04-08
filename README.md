@@ -41,4 +41,4 @@
 
 
 
-2024-04-07: "Time is a game played beautifully by children." - Heraclitus
+2024-04-08: "People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents." - Andrew Carnegie
