@@ -41,4 +41,4 @@
 
 
 
-2024-04-09: "Life is like a wheel. Sooner or later, it always comes around to where you started again." - Stephen King
+2024-04-10: "The desire for more positive experience is itself a negative experience." - Mark Manson
