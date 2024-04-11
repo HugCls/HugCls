@@ -41,4 +41,4 @@
 
 
 
-2024-04-10: "The desire for more positive experience is itself a negative experience." - Mark Manson
+2024-04-11: "Try not to become a man of success, but rather try to become a man of value." - Albert Einstein
