@@ -41,4 +41,4 @@
 
 
 
-2024-04-11: "Try not to become a man of success, but rather try to become a man of value." - Albert Einstein
+2024-04-12: "All our knowledge has its origins in our perceptions." - Leonardo da Vinci
