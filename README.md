@@ -41,4 +41,4 @@
 
 
 
-2024-04-13: "If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you." - Paramahansa Yogananda
+2024-04-14: "The reward of suffering is experience." - Harry S. Truman
