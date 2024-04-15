@@ -41,4 +41,4 @@
 
 
 
-2024-04-14: "The reward of suffering is experience." - Harry S. Truman
+2024-04-15: "To lose your temper is only useful once a year." - Colin R. Davis
