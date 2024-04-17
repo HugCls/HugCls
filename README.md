@@ -41,4 +41,4 @@
 
 
 
-2024-04-16: "We are all here for some special reason." - Robin Sharma
+2024-04-17: "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place." - Bhagavad Gita
