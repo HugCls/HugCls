@@ -41,4 +41,4 @@
 
 
 
-2024-04-17: "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place." - Bhagavad Gita
+2024-04-18: "A tiger doesn't lose sleep over the opinion of sheep." - Shahir Zag
