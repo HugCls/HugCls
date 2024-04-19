@@ -41,4 +41,4 @@
 
 
 
-2024-04-18: "A tiger doesn't lose sleep over the opinion of sheep." - Shahir Zag
+2024-04-19: "In youth we run into difficulties. In old age difficulties run into us. " - Beverly Sills
