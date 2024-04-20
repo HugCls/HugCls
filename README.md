@@ -41,4 +41,4 @@
 
 
 
-2024-04-19: "In youth we run into difficulties. In old age difficulties run into us. " - Beverly Sills
+2024-04-20: "Tragedy is a tool for the living to gain wisdom, not a guide by which to live." - Robert F. Kennedy
