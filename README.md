@@ -41,4 +41,4 @@
 
 
 
-2024-04-20: "Tragedy is a tool for the living to gain wisdom, not a guide by which to live." - Robert F. Kennedy
+2024-04-21: "Everything will be ok in the end. If it's not ok, it's not the end." - John Lennon
