@@ -41,4 +41,4 @@
 
 
 
-2024-04-21: "Everything will be ok in the end. If it's not ok, it's not the end." - John Lennon
+2024-04-22: "Being entirely honest with oneself is a good exercise." - Sigmund Freud
