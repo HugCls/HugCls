@@ -41,4 +41,4 @@
 
 
 
-2024-04-22: "Being entirely honest with oneself is a good exercise." - Sigmund Freud
+2024-04-23: "Being ignorant is not so much a shame, as being unwilling to learn." - Benjamin Franklin
