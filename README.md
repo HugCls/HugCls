@@ -41,4 +41,4 @@
 
 
 
-2024-04-23: "Being ignorant is not so much a shame, as being unwilling to learn." - Benjamin Franklin
+2024-04-24: "You are the average of the five people you spend most time with." - Jim Rohn
