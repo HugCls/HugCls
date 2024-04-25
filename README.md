@@ -41,4 +41,4 @@
 
 
 
-2024-04-24: "You are the average of the five people you spend most time with." - Jim Rohn
+2024-04-25: "You are not only responsible for what you say, but also for what you do not say. " - Martin Luther
