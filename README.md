@@ -41,4 +41,4 @@
 
 
 
-2024-04-25: "You are not only responsible for what you say, but also for what you do not say. " - Martin Luther
+2024-04-26: "Sorrow is how we learn to love." - Rita Mae Brown
