@@ -41,4 +41,4 @@
 
 
 
-2024-04-26: "Sorrow is how we learn to love." - Rita Mae Brown
+2024-04-27: "If you truly love Nature, you will find beauty everywhere. " - Vincent van Gogh
