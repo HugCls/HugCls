@@ -41,4 +41,4 @@
 
 
 
-2024-04-27: "If you truly love Nature, you will find beauty everywhere. " - Vincent van Gogh
+2024-04-28: "Heal the past, live the present, dream the future." - Mary Engelbreit
