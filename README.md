@@ -41,4 +41,4 @@
 
 
 
-2024-04-28: "Heal the past, live the present, dream the future." - Mary Engelbreit
+2024-04-29: "Pursue what catches your heart, not what catches your eyes." - Roy T. Bennett
