@@ -41,4 +41,4 @@
 
 
 
-2024-04-29: "Pursue what catches your heart, not what catches your eyes." - Roy T. Bennett
+2024-04-30: "You can not live your life just based on what everyone else thinks." - Joyce Meyer
