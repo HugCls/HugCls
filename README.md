@@ -41,4 +41,4 @@
 
 
 
-2024-04-30: "You can not live your life just based on what everyone else thinks." - Joyce Meyer
+2024-05-01: "If you can't, you must. If you must, you can." - Tony Robbins
