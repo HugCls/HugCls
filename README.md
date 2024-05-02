@@ -41,4 +41,4 @@
 
 
 
-2024-05-01: "If you can't, you must. If you must, you can." - Tony Robbins
+2024-05-02: "Don't worry about being successful, but work toward being significant and the success will naturally follow." - Oprah Winfrey
