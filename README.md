@@ -41,4 +41,4 @@
 
 
 
-2024-05-02: "Don't worry about being successful, but work toward being significant and the success will naturally follow." - Oprah Winfrey
+2024-05-03: "Be true to yourself, help others, make each day your masterpiece" - John Wooden
