@@ -41,4 +41,4 @@
 
 
 
-2024-05-03: "Be true to yourself, help others, make each day your masterpiece" - John Wooden
+2024-05-04: "You purchase pain with all that joy can give and die of nothing but a rage to live." - Alexander Pope
