@@ -41,4 +41,4 @@
 
 
 
-2024-05-04: "You purchase pain with all that joy can give and die of nothing but a rage to live." - Alexander Pope
+2024-05-05: "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants." - Stephen King
