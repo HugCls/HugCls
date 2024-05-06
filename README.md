@@ -41,4 +41,4 @@
 
 
 
-2024-05-05: "The mind can calculate, but the spirit yearns, and the heart wants what the heart wants." - Stephen King
+2024-05-06: "All life is a manifestation of the spirit, the manifestation of love." - Morihei Ueshiba
