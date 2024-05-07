@@ -41,4 +41,4 @@
 
 
 
-2024-05-06: "All life is a manifestation of the spirit, the manifestation of love." - Morihei Ueshiba
+2024-05-07: "All has not been said and never will be." - Samuel Beckett
