@@ -41,4 +41,4 @@
 
 
 
-2024-05-07: "All has not been said and never will be." - Samuel Beckett
+2024-05-08: "From morning till night, we should never rely on a single thing." - Huang Po
