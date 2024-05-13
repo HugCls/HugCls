@@ -41,4 +41,4 @@
 
 
 
-2024-05-12: "A mistake is only an error, it becomes a mistake when you fail to correct it." - John Lennon
+2024-05-13: "Change will not come if we wait for some other person, or if we wait for some other time." - Barack Obama
