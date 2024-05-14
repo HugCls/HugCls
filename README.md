@@ -41,4 +41,4 @@
 
 
 
-2024-05-13: "Change will not come if we wait for some other person, or if we wait for some other time." - Barack Obama
+2024-05-14: "The truth is rarely pure and never simple. " - Oscar Wilde
