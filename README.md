@@ -41,4 +41,4 @@
 
 
 
-2024-05-14: "The truth is rarely pure and never simple. " - Oscar Wilde
+2024-05-15: "The desire for more positive experience is itself a negative experience." - Mark Manson
