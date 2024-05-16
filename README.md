@@ -41,4 +41,4 @@
 
 
 
-2024-05-15: "The desire for more positive experience is itself a negative experience." - Mark Manson
+2024-05-16: "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!" - Robert Kiyosaki
