@@ -41,4 +41,4 @@
 
 
 
-2024-05-16: "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!" - Robert Kiyosaki
+2024-05-17: "You are what you believe in. You become that which you believe you can become." - Bhagavad Gita
