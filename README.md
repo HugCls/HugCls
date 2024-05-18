@@ -41,4 +41,4 @@
 
 
 
-2024-05-17: "You are what you believe in. You become that which you believe you can become." - Bhagavad Gita
+2024-05-18: "Thinking will not overcome fear but action will. " - W. Clement Stone
