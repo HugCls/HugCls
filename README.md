@@ -41,4 +41,4 @@
 
 
 
-2024-05-18: "Thinking will not overcome fear but action will. " - W. Clement Stone
+2024-05-19: "We would accomplish many more things if we did not think of them as impossible." - Vince Lombardi
