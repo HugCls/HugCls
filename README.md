@@ -41,4 +41,4 @@
 
 
 
-2024-05-19: "We would accomplish many more things if we did not think of them as impossible." - Vince Lombardi
+2024-05-20: "The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it." - Carl Jung
