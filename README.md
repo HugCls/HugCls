@@ -41,4 +41,4 @@
 
 
 
-2024-05-20: "The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it." - Carl Jung
+2024-05-21: "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor." - James Allen
