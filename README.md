@@ -41,4 +41,4 @@
 
 
 
-2024-05-21: "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor." - James Allen
+2024-05-22: "Here and now...breathe and relax...in battle and in life." - Dan Millman
