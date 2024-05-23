@@ -41,4 +41,4 @@
 
 
 
-2024-05-22: "Here and now...breathe and relax...in battle and in life." - Dan Millman
+2024-05-23: "Live calmly. The time will come when the flowers bloom by themselves." - Zen Proverb
