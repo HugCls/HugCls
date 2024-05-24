@@ -41,4 +41,4 @@
 
 
 
-2024-05-23: "Live calmly. The time will come when the flowers bloom by themselves." - Zen Proverb
+2024-05-24: "The key to success is to focus our conscious mind on things we desire not things we fear. " - Brian Tracy
