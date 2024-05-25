@@ -41,4 +41,4 @@
 
 
 
-2024-05-24: "The key to success is to focus our conscious mind on things we desire not things we fear. " - Brian Tracy
+2024-05-25: "However difficult life may seem, there is always something you can do and succeed at." - Stephen Hawking
