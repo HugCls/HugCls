@@ -41,4 +41,4 @@
 
 
 
-2024-05-26: "Don't think money does everything or you are going to end up doing everything for money." - Voltaire
+2024-05-27: "However difficult life may seem, there is always something you can do and succeed at." - Stephen Hawking
