@@ -41,4 +41,4 @@
 
 
 
-2024-05-27: "However difficult life may seem, there is always something you can do and succeed at." - Stephen Hawking
+2024-05-28: "The less people know, the more stubbornly they know it." - Osho
