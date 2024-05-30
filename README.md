@@ -41,4 +41,4 @@
 
 
 
-2024-05-29: "Whatever happens always happens on time." - Zen Proverb
+2024-05-30: "Strategy is a commodity, execution is an art." - Peter Drucker
