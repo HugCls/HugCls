@@ -41,4 +41,4 @@
 
 
 
-2024-05-30: "Strategy is a commodity, execution is an art." - Peter Drucker
+2024-05-31: "Numbing the pain for a while will make it worse when you finally feel it." - Albus Dumbledore
