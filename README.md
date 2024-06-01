@@ -41,4 +41,4 @@
 
 
 
-2024-05-31: "Numbing the pain for a while will make it worse when you finally feel it." - Albus Dumbledore
+2024-06-01: "A self that goes on changing is a self that goes on living." - Virginia Woolf
