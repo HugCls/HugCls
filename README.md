@@ -41,4 +41,4 @@
 
 
 
-2024-06-01: "A self that goes on changing is a self that goes on living." - Virginia Woolf
+2024-06-02: "The most courageous act is still to think for yourself. Aloud." - Coco Chanel
