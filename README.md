@@ -41,4 +41,4 @@
 
 
 
-2024-06-02: "The most courageous act is still to think for yourself. Aloud." - Coco Chanel
+2024-06-03: "If you change the way you look at things, the things you look at change. " - Wayne Dyer
