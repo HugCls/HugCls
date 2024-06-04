@@ -41,4 +41,4 @@
 
 
 
-2024-06-03: "If you change the way you look at things, the things you look at change. " - Wayne Dyer
+2024-06-04: "Be true to yourself, help others, make each day your masterpiece" - John Wooden
