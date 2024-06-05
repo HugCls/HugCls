@@ -41,4 +41,4 @@
 
 
 
-2024-06-04: "Be true to yourself, help others, make each day your masterpiece" - John Wooden
+2024-06-05: "Life has the name of life, but in reality it is death." - Heraclitus
