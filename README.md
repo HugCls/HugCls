@@ -41,4 +41,4 @@
 
 
 
-2024-06-05: "Life has the name of life, but in reality it is death." - Heraclitus
+2024-06-06: "Man's character is his fate." - Heraclitus
