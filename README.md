@@ -41,4 +41,4 @@
 
 
 
-2024-06-06: "Man's character is his fate." - Heraclitus
+2024-06-07: "Do not wait for leaders; do it alone, person to person." - Mother Teresa
