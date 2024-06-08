@@ -41,4 +41,4 @@
 
 
 
-2024-06-07: "Do not wait for leaders; do it alone, person to person." - Mother Teresa
+2024-06-08: "Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end." - Roy T. Bennett
