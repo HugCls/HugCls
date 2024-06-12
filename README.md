@@ -41,4 +41,4 @@
 
 
 
-2024-06-11: "A loving heart is the truest wisdom." - Charles Dickens
+2024-06-12: "Surrender to what is. Let go of what was. Have faith in what will be." - Sonia Ricotti
