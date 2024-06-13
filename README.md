@@ -41,4 +41,4 @@
 
 
 
-2024-06-12: "Surrender to what is. Let go of what was. Have faith in what will be." - Sonia Ricotti
+2024-06-13: "Hardly anybody recognizes the most significant moments of their life at the time they happen." - W.P. Kinsella
