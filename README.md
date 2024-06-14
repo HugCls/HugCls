@@ -41,4 +41,4 @@
 
 
 
-2024-06-13: "Hardly anybody recognizes the most significant moments of their life at the time they happen." - W.P. Kinsella
+2024-06-14: "One of the most difficult things is not to change society - but to change yourself." - Nelson Mandela
