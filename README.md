@@ -41,4 +41,4 @@
 
 
 
-2024-06-14: "One of the most difficult things is not to change society - but to change yourself." - Nelson Mandela
+2024-06-15: "Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now." - Spencer Johnson
