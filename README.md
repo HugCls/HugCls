@@ -41,4 +41,4 @@
 
 
 
-2024-06-15: "Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now." - Spencer Johnson
+2024-06-16: "Your problem isn't the problem. Your reaction is the problem." - Unknown
