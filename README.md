@@ -41,4 +41,4 @@
 
 
 
-2024-06-16: "Your problem isn't the problem. Your reaction is the problem." - Unknown
+2024-06-17: "In the beginner's mind there are many possibilities, but in the expert's mind there are few." - Shunryu Suzuki
