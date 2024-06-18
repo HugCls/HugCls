@@ -41,4 +41,4 @@
 
 
 
-2024-06-17: "In the beginner's mind there are many possibilities, but in the expert's mind there are few." - Shunryu Suzuki
+2024-06-18: "Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner." - Sonia Ricotti
