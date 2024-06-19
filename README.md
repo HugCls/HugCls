@@ -41,4 +41,4 @@
 
 
 
-2024-06-18: "Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner." - Sonia Ricotti
+2024-06-19: "What we know is a drop, what we don't know is an ocean. " - Isaac Newton
