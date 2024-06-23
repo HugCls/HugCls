@@ -41,4 +41,4 @@
 
 
 
-2024-06-22: "It's just a bad day, not a bad life." - Mary Engelbreit
+2024-06-23: "We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet." - Thich Nhat Hanh
