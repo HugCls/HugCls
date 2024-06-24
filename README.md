@@ -41,4 +41,4 @@
 
 
 
-2024-06-23: "We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet." - Thich Nhat Hanh
+2024-06-24: "Your best life will not be found in comfort. It will be found in fighting for what you believe in." - Maxime Lagace
