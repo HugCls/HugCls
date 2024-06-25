@@ -41,4 +41,4 @@
 
 
 
-2024-06-24: "Your best life will not be found in comfort. It will be found in fighting for what you believe in." - Maxime Lagace
+2024-06-25: "While we may not be able to control all that happens to us, we can control what happens inside us." - Benjamin Franklin
