@@ -41,4 +41,4 @@
 
 
 
-2024-06-25: "While we may not be able to control all that happens to us, we can control what happens inside us." - Benjamin Franklin
+2024-06-26: "Tomorrow is only found in the calendar of fools." - Og Mandino
