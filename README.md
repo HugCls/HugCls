@@ -41,4 +41,4 @@
 
 
 
-2024-06-26: "Tomorrow is only found in the calendar of fools." - Og Mandino
+2024-06-27: "When you want something in life, you just gotta reach out and grab it." - Christopher McCandless
