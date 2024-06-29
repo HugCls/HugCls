@@ -41,4 +41,4 @@
 
 
 
-2024-06-28: "The chief cause of failure and unhappiness is trading what you want most for what you want right now." - Zig Ziglar
+2024-06-29: "Failure will never overtake me if my determination to succeed is strong enough." - Og Mandino
