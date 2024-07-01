@@ -41,4 +41,4 @@
 
 
 
-2024-06-30: "Pleasure can be supported by an illusion; but happiness rests upon truth. " - Nicolas Chamfort
+2024-07-01: "We become what we believe." - Lolly Daskal
