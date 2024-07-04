@@ -41,4 +41,4 @@
 
 
 
-2024-07-03: "Opportunities don't often come along. So, when they do, you have to grab them." - Audrey Hepburn
+2024-07-04: "It takes a very long time to become young." - Pablo Picasso
