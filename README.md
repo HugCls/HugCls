@@ -41,4 +41,4 @@
 
 
 
-2024-07-04: "It takes a very long time to become young." - Pablo Picasso
+2024-07-05: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
