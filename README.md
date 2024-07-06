@@ -41,4 +41,4 @@
 
 
 
-2024-07-05: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
+2024-07-06: "Happiness is pretty simple: someone to love, something to do, something to look forward to." - Rita Mae Brown
