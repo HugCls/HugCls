@@ -41,4 +41,4 @@
 
 
 
-2024-07-06: "Happiness is pretty simple: someone to love, something to do, something to look forward to." - Rita Mae Brown
+2024-07-07: "Rest in reason; move in passion." - Kahlil Gibran
