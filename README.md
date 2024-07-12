@@ -41,4 +41,4 @@
 
 
 
-2024-07-11: "Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams." - Robert Greene
+2024-07-12: "The future belongs to those who learn more skills and combine them in creative ways." - Robert Greene
