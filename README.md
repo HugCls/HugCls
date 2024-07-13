@@ -41,4 +41,4 @@
 
 
 
-2024-07-12: "The future belongs to those who learn more skills and combine them in creative ways." - Robert Greene
+2024-07-13: "The man who asks a question is a fool for a minute, the man who does not ask is a fool for life." - Confucius
