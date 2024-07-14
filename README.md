@@ -41,4 +41,4 @@
 
 
 
-2024-07-13: "The man who asks a question is a fool for a minute, the man who does not ask is a fool for life." - Confucius
+2024-07-14: "It ain't where you start in life, it's where you end up, and what you did along the way." - Colin Powell
