@@ -41,4 +41,4 @@
 
 
 
-2024-07-14: "It ain't where you start in life, it's where you end up, and what you did along the way." - Colin Powell
+2024-07-15: "I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry." - Tony Robbins
