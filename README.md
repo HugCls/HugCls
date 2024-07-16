@@ -41,4 +41,4 @@
 
 
 
-2024-07-15: "I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry." - Tony Robbins
+2024-07-16: "A gentleman is one who puts more into the world than he takes out." - George Bernard Shaw
