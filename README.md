@@ -41,4 +41,4 @@
 
 
 
-2024-07-16: "A gentleman is one who puts more into the world than he takes out." - George Bernard Shaw
+2024-07-17: "The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you." - Sonia Ricotti
