@@ -41,4 +41,4 @@
 
 
 
-2024-07-17: "The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you." - Sonia Ricotti
+2024-07-18: "Be confident, not certain." - Eleanor Roosevelt
