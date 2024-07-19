@@ -41,4 +41,4 @@
 
 
 
-2024-07-18: "Be confident, not certain." - Eleanor Roosevelt
+2024-07-19: "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence." - Josh Waitzkin
