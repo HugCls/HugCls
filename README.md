@@ -41,4 +41,4 @@
 
 
 
-2024-07-19: "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence." - Josh Waitzkin
+2024-07-20: "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams." - D. H. Lawrence
