@@ -41,4 +41,4 @@
 
 
 
-2024-07-20: "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams." - D. H. Lawrence
+2024-07-21: "Where words fail, music speaks." - Hans Christian Andersen
