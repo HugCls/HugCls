@@ -41,4 +41,4 @@
 
 
 
-2024-07-22: "When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place." - Bhagavad Gita
+2024-07-23: "Giving back involves a certain amount of giving up." - Colin Powell
