@@ -41,4 +41,4 @@
 
 
 
-2024-07-24: "Just living is not enough... one must have sunshine, freedom, and a little flower. " - Hans Christian Andersen
+2024-07-25: "All I can do is be me, whoever that is." - Bob Dylan
