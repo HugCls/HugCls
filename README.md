@@ -41,4 +41,4 @@
 
 
 
-2024-07-25: "All I can do is be me, whoever that is." - Bob Dylan
+2024-07-26: "Being wrong brings the opportunity for growth." - Mark Manson
