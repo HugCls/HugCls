@@ -41,4 +41,4 @@
 
 
 
-2024-07-26: "Being wrong brings the opportunity for growth." - Mark Manson
+2024-07-27: "Our joy does not have to be based on our circumstances." - Joyce Meyer
