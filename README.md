@@ -41,4 +41,4 @@
 
 
 
-2024-07-27: "Our joy does not have to be based on our circumstances." - Joyce Meyer
+2024-07-28: "Tension is who you think you should be. Relaxation is who you are." - Chinese Proverb
