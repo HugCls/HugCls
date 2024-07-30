@@ -41,4 +41,4 @@
 
 
 
-2024-07-29: "In the practice of tolerance, one's enemy is the best teacher." - Dalai Lama
+2024-07-30: "Life begins where fear ends." - Osho
