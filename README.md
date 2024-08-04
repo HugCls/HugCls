@@ -41,4 +41,4 @@
 
 
 
-2024-08-03: "Whatever satisfies the soul is truth." - Walt Whitman
+2024-08-04: "Your spirit is the true shield." - Morihei Ueshiba
