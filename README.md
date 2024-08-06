@@ -41,4 +41,4 @@
 
 
 
-2024-08-05: "The scariest moment is always just before you start. After that, things can only get better." - Stephen King
+2024-08-06: "If you've never eaten while crying you don t know what life tastes like." - Johann Wolfgang von Goethe
