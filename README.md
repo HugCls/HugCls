@@ -41,4 +41,4 @@
 
 
 
-2024-08-06: "If you've never eaten while crying you don t know what life tastes like." - Johann Wolfgang von Goethe
+2024-08-07: "Always do your best. What you plant now, you will harvest later." - Og Mandino
