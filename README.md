@@ -41,4 +41,4 @@
 
 
 
-2024-08-07: "Always do your best. What you plant now, you will harvest later." - Og Mandino
+2024-08-08: "Either get busy living or get busy dying." - Stephen King
