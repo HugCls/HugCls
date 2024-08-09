@@ -41,4 +41,4 @@
 
 
 
-2024-08-08: "Either get busy living or get busy dying." - Stephen King
+2024-08-09: "Knowing your own darkness is the best method for dealing with the darknesses of other people." - Carl Jung
