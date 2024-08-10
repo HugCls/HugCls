@@ -41,4 +41,4 @@
 
 
 
-2024-08-09: "Knowing your own darkness is the best method for dealing with the darknesses of other people." - Carl Jung
+2024-08-10: "Don't let the noise of others opinions drown out your inner voice." - Steve Jobs
