@@ -41,4 +41,4 @@
 
 
 
-2024-08-10: "Don't let the noise of others opinions drown out your inner voice." - Steve Jobs
+2024-08-11: "If I persist long enough I will win." - Og Mandino
