@@ -41,4 +41,4 @@
 
 
 
-2024-08-11: "If I persist long enough I will win." - Og Mandino
+2024-08-12: "He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has." - Epictetus
