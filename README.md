@@ -41,4 +41,4 @@
 
 
 
-2024-08-12: "He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has." - Epictetus
+2024-08-13: "Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything." - Sydney Smith
