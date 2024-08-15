@@ -41,4 +41,4 @@
 
 
 
-2024-08-14: "No man will make a great leader who wants to do it all himself or to get all the credit for doing it." - Andrew Carnegie
+2024-08-15: "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined." - Deepak Chopra
