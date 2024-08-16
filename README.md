@@ -41,4 +41,4 @@
 
 
 
-2024-08-15: "Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined." - Deepak Chopra
+2024-08-16: "Logic is like the sword - those who appeal to it shall perish by it." - Samuel Butler
