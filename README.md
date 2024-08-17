@@ -41,4 +41,4 @@
 
 
 
-2024-08-16: "Logic is like the sword - those who appeal to it shall perish by it." - Samuel Butler
+2024-08-17: "It doesn't matter where you are coming from. All that matters is where you are going. " - Brian Tracy
