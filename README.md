@@ -41,4 +41,4 @@
 
 
 
-2024-08-17: "It doesn't matter where you are coming from. All that matters is where you are going. " - Brian Tracy
+2024-08-18: "Nothing is particularly hard if you divide it into small jobs. " - Henry Ford
