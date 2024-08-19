@@ -41,4 +41,4 @@
 
 
 
-2024-08-18: "Nothing is particularly hard if you divide it into small jobs. " - Henry Ford
+2024-08-19: "There is no path to Peace. Peace is the path." - Dan Millman
