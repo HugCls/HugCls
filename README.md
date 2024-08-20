@@ -41,4 +41,4 @@
 
 
 
-2024-08-19: "There is no path to Peace. Peace is the path." - Dan Millman
+2024-08-20: "If you want something then you lose everything. If you don't want anything then you already have everything." - Seungsahn
