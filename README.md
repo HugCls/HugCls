@@ -41,4 +41,4 @@
 
 
 
-2024-08-21: "An ounce of performance is worth pounds of promises." - Mae West
+2024-08-22: "The traveler sees what he sees. The tourist sees what he has come to see." - Gilbert Chesterton
