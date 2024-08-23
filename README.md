@@ -41,4 +41,4 @@
 
 
 
-2024-08-22: "The traveler sees what he sees. The tourist sees what he has come to see." - Gilbert Chesterton
+2024-08-23: "Knowledge is a treasure, but practice is the key to it." - Lao Tzu
