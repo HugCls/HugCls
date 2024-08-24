@@ -41,4 +41,4 @@
 
 
 
-2024-08-23: "Knowledge is a treasure, but practice is the key to it." - Lao Tzu
+2024-08-24: "Your world is a living expression of how you are using and have used your mind." - Earl Nightingale
