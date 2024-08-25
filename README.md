@@ -41,4 +41,4 @@
 
 
 
-2024-08-24: "Your world is a living expression of how you are using and have used your mind." - Earl Nightingale
+2024-08-25: "You are the sky. Everything else - it's just the weather." - Pema Chodron
