@@ -41,4 +41,4 @@
 
 
 
-2024-08-25: "You are the sky. Everything else - it's just the weather." - Pema Chodron
+2024-08-26: "The Only Thing That Is Constant Is Change" - Heraclitus
