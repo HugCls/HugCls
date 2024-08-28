@@ -41,4 +41,4 @@
 
 
 
-2024-08-27: "Persistence is very important. You should not give up unless you are forced to give up." - Elon Musk
+2024-08-28: "Today you are you, that is truer than true. There is no one alive who is you-er than you." - Dr. Seuss
