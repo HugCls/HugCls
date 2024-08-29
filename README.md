@@ -41,4 +41,4 @@
 
 
 
-2024-08-28: "Today you are you, that is truer than true. There is no one alive who is you-er than you." - Dr. Seuss
+2024-08-29: "A good character is the best tombstone. Carve your name on hearts, not on marble." - Charles Spurgeon
