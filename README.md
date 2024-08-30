@@ -41,4 +41,4 @@
 
 
 
-2024-08-29: "A good character is the best tombstone. Carve your name on hearts, not on marble." - Charles Spurgeon
+2024-08-30: "You don't earn loyalty in a day. You earn loyalty day-by-day." - Jeffrey Gitomer
