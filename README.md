@@ -41,4 +41,4 @@
 
 
 
-2024-08-30: "You don't earn loyalty in a day. You earn loyalty day-by-day." - Jeffrey Gitomer
+2024-08-31: "You may think I'm small, but I have a universe inside my mind." - Yoko Ono
