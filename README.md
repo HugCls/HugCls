@@ -41,4 +41,4 @@
 
 
 
-2024-08-31: "You may think I'm small, but I have a universe inside my mind." - Yoko Ono
+2024-09-01: "Be the change that you want to see in the world." - Mahatma Gandhi
