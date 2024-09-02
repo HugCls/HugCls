@@ -41,4 +41,4 @@
 
 
 
-2024-09-01: "Be the change that you want to see in the world." - Mahatma Gandhi
+2024-09-02: "No grand idea was ever born in a conference, but a lot of foolish ideas have died there." - F. Scott Fitzgerald
