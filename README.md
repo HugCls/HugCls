@@ -41,4 +41,4 @@
 
 
 
-2024-09-02: "No grand idea was ever born in a conference, but a lot of foolish ideas have died there." - F. Scott Fitzgerald
+2024-09-03: "To be prepared is half the victory. " - Miguel de Cervantes
