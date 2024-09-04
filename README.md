@@ -41,4 +41,4 @@
 
 
 
-2024-09-03: "To be prepared is half the victory. " - Miguel de Cervantes
+2024-09-04: "To be fully alive is to feel that everything is possible." - Eric Hoffer
