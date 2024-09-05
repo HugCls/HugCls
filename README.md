@@ -41,4 +41,4 @@
 
 
 
-2024-09-04: "To be fully alive is to feel that everything is possible." - Eric Hoffer
+2024-09-05: "Forget safety. Live where you fear to live." - Rumi
