@@ -41,4 +41,4 @@
 
 
 
-2024-09-05: "Forget safety. Live where you fear to live." - Rumi
+2024-09-06: "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself." - Robert Kiyosaki
