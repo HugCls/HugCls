@@ -41,4 +41,4 @@
 
 
 
-2024-09-06: "Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself." - Robert Kiyosaki
+2024-09-07: "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace." - Dogen
