@@ -41,4 +41,4 @@
 
 
 
-2024-09-07: "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace." - Dogen
+2024-09-08: "Ponder and deliberate before you make a move." - Sun Tzu
