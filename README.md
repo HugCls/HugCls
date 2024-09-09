@@ -41,4 +41,4 @@
 
 
 
-2024-09-08: "Ponder and deliberate before you make a move." - Sun Tzu
+2024-09-09: "There is nothing quite so tragic as a young cynic." - Maya Angelou
