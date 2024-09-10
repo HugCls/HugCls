@@ -41,4 +41,4 @@
 
 
 
-2024-09-09: "There is nothing quite so tragic as a young cynic." - Maya Angelou
+2024-09-10: "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart." - Roy T. Bennett
