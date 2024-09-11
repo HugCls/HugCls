@@ -41,4 +41,4 @@
 
 
 
-2024-09-10: "Don't be pushed around by the fears in your mind. Be led by the dreams in your heart." - Roy T. Bennett
+2024-09-11: "Remember to look up at the stars and not down at your feet." - Stephen Hawking
