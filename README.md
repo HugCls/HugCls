@@ -41,4 +41,4 @@
 
 
 
-2024-09-11: "Remember to look up at the stars and not down at your feet." - Stephen Hawking
+2024-09-12: "Failure is acceptable. Not trying is a whole different ball park." - Michael Jordan
