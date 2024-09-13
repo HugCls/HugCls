@@ -41,4 +41,4 @@
 
 
 
-2024-09-12: "Failure is acceptable. Not trying is a whole different ball park." - Michael Jordan
+2024-09-13: "Rich people have small TVs and big libraries, and poor people have small libraries and big TVs." - Zig Ziglar
