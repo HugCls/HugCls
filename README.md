@@ -41,4 +41,4 @@
 
 
 
-2024-09-14: "There is little success where there is little laughter." - Andrew Carnegie
+2024-09-15: "We will now discuss in a little more detail the Struggle for Existence." - Charles Darwin
