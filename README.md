@@ -41,4 +41,4 @@
 
 
 
-2024-09-15: "We will now discuss in a little more detail the Struggle for Existence." - Charles Darwin
+2024-09-16: "The nearer a man comes to a calm mind, the closer he is to strength." - Marcus Aurelius
