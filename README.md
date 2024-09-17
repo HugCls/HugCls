@@ -41,4 +41,4 @@
 
 
 
-2024-09-16: "The nearer a man comes to a calm mind, the closer he is to strength." - Marcus Aurelius
+2024-09-17: "Truth is like most opinions - best unexpressed." - Kenneth Branagh
