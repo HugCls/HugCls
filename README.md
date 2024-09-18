@@ -41,4 +41,4 @@
 
 
 
-2024-09-17: "Truth is like most opinions - best unexpressed." - Kenneth Branagh
+2024-09-18: "Most of us will do anything to avoid facing ourselves." - Lolly Daskal
