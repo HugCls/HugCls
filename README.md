@@ -41,4 +41,4 @@
 
 
 
-2024-09-18: "Most of us will do anything to avoid facing ourselves." - Lolly Daskal
+2024-09-19: "The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart. " - St. Jerome
