@@ -41,4 +41,4 @@
 
 
 
-2024-09-19: "The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart. " - St. Jerome
+2024-09-20: "The season of failure is the best time for sowing the seeds of success. " - Paramahansa Yogananda
