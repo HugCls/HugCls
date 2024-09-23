@@ -41,4 +41,4 @@
 
 
 
-2024-09-22: "Nothing like a health problem to turn up the contrast dial for the rest of life." - Naval Ravikant
+2024-09-23: "Ponder and deliberate before you make a move." - Sun Tzu
