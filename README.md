@@ -41,4 +41,4 @@
 
 
 
-2024-09-23: "Ponder and deliberate before you make a move." - Sun Tzu
+2024-09-24: "Comedy = tragedy + time." - Carol Burnett
