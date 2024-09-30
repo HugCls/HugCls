@@ -41,4 +41,4 @@
 
 
 
-2024-09-29: "We can have more than we've got because we can become more than we are." - Jim Rohn
+2024-09-30: "The person who says something is impossible should not interrupt the person who is doing it." - Chinese Proverb
