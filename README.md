@@ -41,4 +41,4 @@
 
 
 
-2024-09-30: "The person who says something is impossible should not interrupt the person who is doing it." - Chinese Proverb
+2024-10-01: "Peace if possible, truth at all costs." - Martin Luther
