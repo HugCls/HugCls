@@ -41,4 +41,4 @@
 
 
 
-2024-10-01: "Peace if possible, truth at all costs." - Martin Luther
+2024-10-02: "The future will be shaped by those willing to commit their minds and their bodies to the task." - Robert F. Kennedy
