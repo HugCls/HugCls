@@ -41,4 +41,4 @@
 
 
 
-2024-10-03: "Live in the sunshine, swim the sea, drink the wild air." - Ralph Waldo Emerson
+2024-10-04: "My guiding principle is this: Guilt is never to be doubted. " - Franz Kafka
