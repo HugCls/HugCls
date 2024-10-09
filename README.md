@@ -41,4 +41,4 @@
 
 
 
-2024-10-08: "You can put lipstick on a pig. It's still a pig." - Barack Obama
+2024-10-09: "Intelligent men are cruel. Stupid men are monstrously cruel." - Jack London
