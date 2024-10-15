@@ -41,4 +41,4 @@
 
 
 
-2024-10-14: "It's just a bad day, not a bad life." - Mary Engelbreit
+2024-10-15: "Integrity is telling myself the truth. And honesty is telling the truth to other people." - Spencer Johnson
