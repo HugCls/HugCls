@@ -41,4 +41,4 @@
 
 
 
-2024-10-15: "Integrity is telling myself the truth. And honesty is telling the truth to other people." - Spencer Johnson
+2024-10-16: "Those who cannot change their minds cannot change anything." - George Bernard Shaw
