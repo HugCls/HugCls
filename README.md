@@ -41,4 +41,4 @@
 
 
 
-2024-10-16: "Those who cannot change their minds cannot change anything." - George Bernard Shaw
+2024-10-17: "I'm an optimist by choice not by stupidity." - Yanni
