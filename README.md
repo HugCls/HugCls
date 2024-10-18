@@ -41,4 +41,4 @@
 
 
 
-2024-10-17: "I'm an optimist by choice not by stupidity." - Yanni
+2024-10-18: "New opinions are always suspected, and usually opposed, without any other reason but because they are not common." - John Locke
