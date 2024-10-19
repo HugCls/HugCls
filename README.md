@@ -41,4 +41,4 @@
 
 
 
-2024-10-18: "New opinions are always suspected, and usually opposed, without any other reason but because they are not common." - John Locke
+2024-10-19: "All human beings can alter their lives by altering their attitudes." - Andrew Carnegie
