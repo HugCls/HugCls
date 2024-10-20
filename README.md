@@ -41,4 +41,4 @@
 
 
 
-2024-10-19: "All human beings can alter their lives by altering their attitudes." - Andrew Carnegie
+2024-10-20: "If you do what you've always done, you'll get what you've always gotten." - Tony Robbins
