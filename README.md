@@ -41,4 +41,4 @@
 
 
 
-2024-10-20: "If you do what you've always done, you'll get what you've always gotten." - Tony Robbins
+2024-10-21: "The wise accomplish all that they want without arousing the envy or scorn of others." - Ming-Dao Deng
