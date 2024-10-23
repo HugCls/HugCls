@@ -41,4 +41,4 @@
 
 
 
-2024-10-22: "Memory is the scribe of the soul." - Aristotle
+2024-10-23: "Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain." - Kabir
