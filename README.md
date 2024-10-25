@@ -41,4 +41,4 @@
 
 
 
-2024-10-24: "Happiness depends on your mindset and attitude." - Roy T. Bennett
+2024-10-25: "I am not what happened to me, I am what I choose to become." - Carl Jung
