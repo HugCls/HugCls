@@ -41,4 +41,4 @@
 
 
 
-2024-10-25: "I am not what happened to me, I am what I choose to become." - Carl Jung
+2024-10-26: "Changing minds is harder than finding people who already agree." - Jack Butcher
