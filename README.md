@@ -41,4 +41,4 @@
 
 
 
-2024-10-26: "Changing minds is harder than finding people who already agree." - Jack Butcher
+2024-10-27: "A poet should be so crafty with words that he is envied even for his pains." - Criss Jami
