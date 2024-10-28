@@ -41,4 +41,4 @@
 
 
 
-2024-10-27: "A poet should be so crafty with words that he is envied even for his pains." - Criss Jami
+2024-10-28: "Everyday is a second chance." - Unknown
