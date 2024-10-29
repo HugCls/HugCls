@@ -41,4 +41,4 @@
 
 
 
-2024-10-28: "Everyday is a second chance." - Unknown
+2024-10-29: "Do what is right, not what is easy, nor what is popular." - Roy T. Bennett
