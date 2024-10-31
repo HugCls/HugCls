@@ -41,4 +41,4 @@
 
 
 
-2024-10-30: "Don't be afraid to give up the good to go for the great." - John D. Rockefeller
+2024-10-31: "Believe you can and you will be halfway there." - Lolly Daskal
