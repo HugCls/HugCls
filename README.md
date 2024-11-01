@@ -41,4 +41,4 @@
 
 
 
-2024-10-31: "Believe you can and you will be halfway there." - Lolly Daskal
+2024-11-01: "Excellence is not an exception, it is a prevailing attitude." - Colin Powell
