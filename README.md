@@ -41,4 +41,4 @@
 
 
 
-2024-11-01: "Excellence is not an exception, it is a prevailing attitude." - Colin Powell
+2024-11-02: "Circumstances rule men; men do not rule circumstances. " - Herodotus
