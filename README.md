@@ -41,4 +41,4 @@
 
 
 
-2024-11-03: "We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet." - Thich Nhat Hanh
+2024-11-04: "Weeds are flowers too, once you get to know them." - A.A. Milne
