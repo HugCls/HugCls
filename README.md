@@ -41,4 +41,4 @@
 
 
 
-2024-11-04: "Weeds are flowers too, once you get to know them." - A.A. Milne
+2024-11-05: "Death and life have their determined appointments; riches and honors depend upon heaven. " - Confucius
