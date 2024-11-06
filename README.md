@@ -41,4 +41,4 @@
 
 
 
-2024-11-05: "Death and life have their determined appointments; riches and honors depend upon heaven. " - Confucius
+2024-11-06: "Progress is impossible without change, and those who cannot change their minds cannot change anything." - George Bernard Shaw
