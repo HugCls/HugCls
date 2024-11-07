@@ -41,4 +41,4 @@
 
 
 
-2024-11-06: "Progress is impossible without change, and those who cannot change their minds cannot change anything." - George Bernard Shaw
+2024-11-07: "It's your outlook on life that counts." - Betty White
