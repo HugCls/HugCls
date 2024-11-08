@@ -41,4 +41,4 @@
 
 
 
-2024-11-07: "It's your outlook on life that counts." - Betty White
+2024-11-08: "Confidence is like a dragon where, for every head cut off, two more heads grow back." - Criss Jami
