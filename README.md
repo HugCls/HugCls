@@ -41,4 +41,4 @@
 
 
 
-2024-11-09: "Giving back involves a certain amount of giving up." - Colin Powell
+2024-11-10: "Quality is more important than quantity. One home run is much better than two doubles." - Steve Jobs
