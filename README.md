@@ -41,4 +41,4 @@
 
 
 
-2024-11-10: "Quality is more important than quantity. One home run is much better than two doubles." - Steve Jobs
+2024-11-11: "Death is not sad; the sad thing is that most people don't really live at all." - Dan Millman
