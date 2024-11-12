@@ -41,4 +41,4 @@
 
 
 
-2024-11-11: "Death is not sad; the sad thing is that most people don't really live at all." - Dan Millman
+2024-11-12: "In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better." - Spencer Johnson
