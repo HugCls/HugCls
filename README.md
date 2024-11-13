@@ -41,4 +41,4 @@
 
 
 
-2024-11-12: "In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better." - Spencer Johnson
+2024-11-13: "The world doesn't always give you want, but it often gives you what you need." - Naval Ravikant
