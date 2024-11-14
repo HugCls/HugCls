@@ -41,4 +41,4 @@
 
 
 
-2024-11-13: "The world doesn't always give you want, but it often gives you what you need." - Naval Ravikant
+2024-11-14: "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard." - Colin Powell
