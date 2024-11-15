@@ -41,4 +41,4 @@
 
 
 
-2024-11-14: "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard." - Colin Powell
+2024-11-15: "FOCUS - Follow One Course Until Successful" - Robert Kiyosaki
