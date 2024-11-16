@@ -41,4 +41,4 @@
 
 
 
-2024-11-15: "FOCUS - Follow One Course Until Successful" - Robert Kiyosaki
+2024-11-16: "It is far easier to start something than it is to finish it." - Amelia Earhart
