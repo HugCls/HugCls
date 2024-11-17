@@ -41,4 +41,4 @@
 
 
 
-2024-11-16: "It is far easier to start something than it is to finish it." - Amelia Earhart
+2024-11-17: "A flower falls, even though we love it; and a weed grows, even though we do not love it." - Dogen
