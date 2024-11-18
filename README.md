@@ -41,4 +41,4 @@
 
 
 
-2024-11-17: "A flower falls, even though we love it; and a weed grows, even though we do not love it." - Dogen
+2024-11-18: "People have the illusion that all over the world, all the time, all kinds of fantastic things are happening." - David Brinkley
