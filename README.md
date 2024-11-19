@@ -41,4 +41,4 @@
 
 
 
-2024-11-18: "People have the illusion that all over the world, all the time, all kinds of fantastic things are happening." - David Brinkley
+2024-11-19: "To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment." - Ralph Waldo Emerson
