@@ -41,4 +41,4 @@
 
 
 
-2024-11-19: "To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment." - Ralph Waldo Emerson
+2024-11-20: "Learn to use your emotions to think, not think with your emotions." - Robert Kiyosaki
