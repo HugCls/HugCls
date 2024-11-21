@@ -41,4 +41,4 @@
 
 
 
-2024-11-20: "Learn to use your emotions to think, not think with your emotions." - Robert Kiyosaki
+2024-11-21: "Even if you persuade me, you won't persuade me." - Aristophanes
