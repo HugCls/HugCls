@@ -41,4 +41,4 @@
 
 
 
-2024-11-23: "You can calculate the worth of a man by the number of his enemies." - Gustave Flaubert
+2024-11-24: "Fear not the path of Truth for the lack of People walking on it." - Robert F. Kennedy
