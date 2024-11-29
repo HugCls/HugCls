@@ -41,4 +41,4 @@
 
 
 
-2024-11-28: "The one who boasts does so only out of a feeling of inferiority." - Alfred Adler
+2024-11-29: "Good judgment comes from experience, and experience comes from bad judgment." - Rita Mae Brown
