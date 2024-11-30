@@ -41,4 +41,4 @@
 
 
 
-2024-11-29: "Good judgment comes from experience, and experience comes from bad judgment." - Rita Mae Brown
+2024-11-30: "When you realize you've made a mistake, take immediate steps to correct it." - Dalai Lama
