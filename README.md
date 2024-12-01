@@ -41,4 +41,4 @@
 
 
 
-2024-11-30: "When you realize you've made a mistake, take immediate steps to correct it." - Dalai Lama
+2024-12-01: "Knowledge is learning something everyday. Wisdom is letting go of something everyday." - Unknown
