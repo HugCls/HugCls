@@ -41,4 +41,4 @@
 
 
 
-2024-12-01: "Knowledge is learning something everyday. Wisdom is letting go of something everyday." - Unknown
+2024-12-02: "A good stance and posture reflect a proper state of mind." - Morihei Ueshiba
