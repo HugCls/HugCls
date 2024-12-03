@@ -41,4 +41,4 @@
 
 
 
-2024-12-02: "A good stance and posture reflect a proper state of mind." - Morihei Ueshiba
+2024-12-03: "Most people fail in life because they major in minor things." - Tony Robbins
