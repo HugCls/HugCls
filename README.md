@@ -41,4 +41,4 @@
 
 
 
-2024-12-03: "Most people fail in life because they major in minor things." - Tony Robbins
+2024-12-04: "All things come into being by conflict of opposites." - Heraclitus
