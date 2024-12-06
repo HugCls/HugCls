@@ -41,4 +41,4 @@
 
 
 
-2024-12-05: "A creative man is motivated by the desire to achieve, not by the desire to beat others." - Ayn Rand
+2024-12-06: "A good system shortens the road to the goal. " - Orison Swett Marden
