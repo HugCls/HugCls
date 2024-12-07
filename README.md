@@ -41,4 +41,4 @@
 
 
 
-2024-12-06: "A good system shortens the road to the goal. " - Orison Swett Marden
+2024-12-07: "If you genuinely want something, don't wait for it - teach yourself." - Gurbaksh Chahal
