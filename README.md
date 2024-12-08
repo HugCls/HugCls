@@ -41,4 +41,4 @@
 
 
 
-2024-12-07: "If you genuinely want something, don't wait for it - teach yourself." - Gurbaksh Chahal
+2024-12-08: "Only when you can be extremely pliable and soft can you be extremely hard and strong." - Zen Proverb
