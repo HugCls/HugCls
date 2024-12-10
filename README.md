@@ -41,4 +41,4 @@
 
 
 
-2024-12-09: "Life is a long lesson in humility. " - James Matthew Barrie
+2024-12-10: "Pursue what catches your heart, not what catches your eyes." - Roy T. Bennett
