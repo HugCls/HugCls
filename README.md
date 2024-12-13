@@ -41,4 +41,4 @@
 
 
 
-2024-12-12: "If life were predictable it would cease to be life, and be without flavor." - Eleanor Roosevelt
+2024-12-13: "The spirit is beyond destruction. No one can bring an end to spirit which is everlasting." - Bhagavad Gita
