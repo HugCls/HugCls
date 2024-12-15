@@ -41,4 +41,4 @@
 
 
 
-2024-12-14: "The difference between winning and losing is most often not quitting." - Walt Disney
+2024-12-15: "Persistence is very important. You should not give up unless you are forced to give up." - Elon Musk
