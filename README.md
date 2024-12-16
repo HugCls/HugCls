@@ -41,4 +41,4 @@
 
 
 
-2024-12-15: "Persistence is very important. You should not give up unless you are forced to give up." - Elon Musk
+2024-12-16: "The truly rich men are the ones who have health, loved ones and a work they love." - Maxime Lagace
