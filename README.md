@@ -41,4 +41,4 @@
 
 
 
-2024-12-16: "The truly rich men are the ones who have health, loved ones and a work they love." - Maxime Lagace
+2024-12-17: "Once you learn to quit, it becomes a habit." - Vince Lombardi
