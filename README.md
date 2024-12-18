@@ -41,4 +41,4 @@
 
 
 
-2024-12-17: "Once you learn to quit, it becomes a habit." - Vince Lombardi
+2024-12-18: "Teachers open the door. You enter by yourself. " - Chinese Proverb
