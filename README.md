@@ -41,4 +41,4 @@
 
 
 
-2024-12-19: "A little progress each day adds up to big results." - Unknown
+2024-12-20: "Your only limitations are those you set up in your mind or permit others to set up for you." - Og Mandino
