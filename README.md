@@ -41,4 +41,4 @@
 
 
 
-2024-12-20: "Your only limitations are those you set up in your mind or permit others to set up for you." - Og Mandino
+2024-12-21: "He who is untrue to his own cause cannot command the respect of others." - Albert Einstein
