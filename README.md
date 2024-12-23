@@ -41,4 +41,4 @@
 
 
 
-2024-12-22: "Help others achieve their dreams and you will achieve yours." - Les Brown
+2024-12-23: "Friends ask you questions; enemies question you." - Criss Jami
