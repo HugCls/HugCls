@@ -41,4 +41,4 @@
 
 
 
-2024-12-23: "Friends ask you questions; enemies question you." - Criss Jami
+2024-12-24: "The reward of suffering is experience." - Harry S. Truman
