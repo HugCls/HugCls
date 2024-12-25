@@ -41,4 +41,4 @@
 
 
 
-2024-12-24: "The reward of suffering is experience." - Harry S. Truman
+2024-12-25: "What would life be if we had no courage to attempt anything? " - Vincent van Gogh
