@@ -41,4 +41,4 @@
 
 
 
-2024-12-25: "What would life be if we had no courage to attempt anything? " - Vincent van Gogh
+2024-12-26: "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams." - D. H. Lawrence
