@@ -41,4 +41,4 @@
 
 
 
-2024-12-26: "I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams." - D. H. Lawrence
+2024-12-27: "Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in." - Robert Greene
