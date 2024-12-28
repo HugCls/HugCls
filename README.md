@@ -41,4 +41,4 @@
 
 
 
-2024-12-27: "Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in." - Robert Greene
+2024-12-28: "If you tell the truth, you don't have to remember anything." - Mark Twain
