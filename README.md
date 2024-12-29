@@ -41,4 +41,4 @@
 
 
 
-2024-12-28: "If you tell the truth, you don't have to remember anything." - Mark Twain
+2024-12-29: "Fear is what stops you. Courage is what keeps you going." - Unknown
