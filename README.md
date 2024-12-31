@@ -41,4 +41,4 @@
 
 
 
-2024-12-30: "Human happiness and moral duty are inseparably connected. " - George Washington
+2024-12-31: "You do not read a book for the book's sake, but for your own." - Earl Nightingale
