@@ -41,4 +41,4 @@
 
 
 
-2024-12-31: "You do not read a book for the book's sake, but for your own." - Earl Nightingale
+2025-01-01: "Passion creates, addiction consumes." - Gabor Mate
