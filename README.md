@@ -41,4 +41,4 @@
 
 
 
-2025-01-01: "Passion creates, addiction consumes." - Gabor Mate
+2025-01-02: "Whatever is begun in anger, ends in shame." - Benjamin Franklin
