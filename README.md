@@ -41,4 +41,4 @@
 
 
 
-2025-01-05: "You are not the drop in the ocean, but the ocean in the drop." - Deepak Chopra
+2025-01-06: "The chief enemy of creativity is good sense." - Pablo Picasso
