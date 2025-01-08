@@ -41,4 +41,4 @@
 
 
 
-2025-01-07: "You may be one person in this world, but to one person you may mean the world." - Unknown
+2025-01-08: "People have the illusion that all over the world, all the time, all kinds of fantastic things are happening." - David Brinkley
