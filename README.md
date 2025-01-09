@@ -41,4 +41,4 @@
 
 
 
-2025-01-08: "People have the illusion that all over the world, all the time, all kinds of fantastic things are happening." - David Brinkley
+2025-01-09: "Wisdom is the oneness of mind that guides and permeates all things." - Heraclitus
