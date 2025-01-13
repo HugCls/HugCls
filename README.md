@@ -41,4 +41,4 @@
 
 
 
-2025-01-12: "If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed." - Deepak Chopra
+2025-01-13: "You are not what you think you are, You are not what others think you are, You are what you think others think you are." - Unknown
