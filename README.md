@@ -41,4 +41,4 @@
 
 
 
-2025-01-15: "Tis not too late to seek a newer world." - Heraclitus
+2025-01-16: "There is no path to Peace. Peace is the path." - Dan Millman
