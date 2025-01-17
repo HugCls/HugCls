@@ -41,4 +41,4 @@
 
 
 
-2025-01-16: "There is no path to Peace. Peace is the path." - Dan Millman
+2025-01-17: "Work is always an antidote to depression." - Eleanor Roosevelt
