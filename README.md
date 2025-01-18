@@ -41,4 +41,4 @@
 
 
 
-2025-01-17: "Work is always an antidote to depression." - Eleanor Roosevelt
+2025-01-18: "Success and failure come and go, but don't let them define you. It's who you are that matters." - Kamal Ravikant
