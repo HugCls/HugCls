@@ -41,4 +41,4 @@
 
 
 
-2025-01-18: "Success and failure come and go, but don't let them define you. It's who you are that matters." - Kamal Ravikant
+2025-01-19: "The less you open your heart to others, the more your heart suffers." - Deepak Chopra
