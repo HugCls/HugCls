@@ -41,4 +41,4 @@
 
 
 
-2025-01-22: "Open your mind before your mouth." - Aristophanes
+2025-01-23: "Live, travel, adventure, bless, and don't be sorry.  " - Jack Kerouac
