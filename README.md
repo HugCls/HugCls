@@ -41,4 +41,4 @@
 
 
 
-2025-01-23: "Live, travel, adventure, bless, and don't be sorry.  " - Jack Kerouac
+2025-01-24: "Believe you can and you will be halfway there." - Lolly Daskal
