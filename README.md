@@ -41,4 +41,4 @@
 
 
 
-2025-01-24: "Believe you can and you will be halfway there." - Lolly Daskal
+2025-01-25: "Some of us learn from other people's mistakes and the rest of us have to be other people.  " - Zig Ziglar
