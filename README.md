@@ -41,4 +41,4 @@
 
 
 
-2025-01-25: "Some of us learn from other people's mistakes and the rest of us have to be other people.  " - Zig Ziglar
+2025-01-26: "It's better to stand by someone's side than by yourself." - Jack London
