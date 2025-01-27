@@ -41,4 +41,4 @@
 
 
 
-2025-01-26: "It's better to stand by someone's side than by yourself." - Jack London
+2025-01-27: "Just because something isn't a lie does not mean that it isn't deceptive." - Criss Jami
