@@ -41,4 +41,4 @@
 
 
 
-2025-01-27: "Just because something isn't a lie does not mean that it isn't deceptive." - Criss Jami
+2025-01-28: "Weeds are flowers too, once you get to know them." - A.A. Milne
