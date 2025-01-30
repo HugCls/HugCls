@@ -41,4 +41,4 @@
 
 
 
-2025-01-29: "No kind action ever stops with itself. One kind action leads to another. Good example is followed." - Amelia Earhart
+2025-01-30: "Children are our greatest natural resource." - Herbert Hoover
