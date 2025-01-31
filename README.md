@@ -41,4 +41,4 @@
 
 
 
-2025-01-30: "Children are our greatest natural resource." - Herbert Hoover
+2025-01-31: "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth." - Henry David Thoreau
