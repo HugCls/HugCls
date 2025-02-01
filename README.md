@@ -41,4 +41,4 @@
 
 
 
-2025-01-31: "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth." - Henry David Thoreau
+2025-02-01: "The beautiful journey of today can only begin when we learn to let go of yesterday." - Steve Maraboli
