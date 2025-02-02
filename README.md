@@ -41,4 +41,4 @@
 
 
 
-2025-02-01: "The beautiful journey of today can only begin when we learn to let go of yesterday." - Steve Maraboli
+2025-02-02: "Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire?" - Seneca
