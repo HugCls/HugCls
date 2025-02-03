@@ -41,4 +41,4 @@
 
 
 
-2025-02-02: "Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire?" - Seneca
+2025-02-03: "We forge the chains we wear in life." - Charles Dickens
