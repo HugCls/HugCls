@@ -41,4 +41,4 @@
 
 
 
-2025-02-03: "We forge the chains we wear in life." - Charles Dickens
+2025-02-04: "Life can be the scariest and most beautiful thing simultaneously." - Maxime Lagace
