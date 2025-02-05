@@ -41,4 +41,4 @@
 
 
 
-2025-02-04: "Life can be the scariest and most beautiful thing simultaneously." - Maxime Lagace
+2025-02-05: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
