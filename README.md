@@ -41,4 +41,4 @@
 
 
 
-2025-02-05: "The greater the impact you want to make, the greater your influence needs to be." - Lolly Daskal
+2025-02-06: "I do not seek. I find." - Pablo Picasso
