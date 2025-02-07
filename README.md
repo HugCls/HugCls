@@ -41,4 +41,4 @@
 
 
 
-2025-02-06: "I do not seek. I find." - Pablo Picasso
+2025-02-07: "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him." - Confucius
