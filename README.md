@@ -41,4 +41,4 @@
 
 
 
-2025-02-07: "A man is great not because he hasn't failed; a man is great because failure hasn't stopped him." - Confucius
+2025-02-08: "It is far easier to start something than it is to finish it." - Amelia Earhart
