@@ -41,4 +41,4 @@
 
 
 
-2025-02-08: "It is far easier to start something than it is to finish it." - Amelia Earhart
+2025-02-09: "If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable." - Maxime Lagace
