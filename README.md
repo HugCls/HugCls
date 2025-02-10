@@ -41,4 +41,4 @@
 
 
 
-2025-02-09: "If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable." - Maxime Lagace
+2025-02-10: "Keep away from people who try to belittle your ambitions." - Mark Twain
