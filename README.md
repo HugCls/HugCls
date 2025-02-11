@@ -41,4 +41,4 @@
 
 
 
-2025-02-10: "Keep away from people who try to belittle your ambitions." - Mark Twain
+2025-02-11: "Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them." - W. Clement Stone
