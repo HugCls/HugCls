@@ -41,4 +41,4 @@
 
 
 
-2025-02-11: "Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them." - W. Clement Stone
+2025-02-12: "Conscience is a man's compass. " - Vincent van Gogh
