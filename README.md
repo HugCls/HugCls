@@ -41,4 +41,4 @@
 
 
 
-2025-02-12: "Conscience is a man's compass. " - Vincent van Gogh
+2025-02-13: "We shape clay into a pot, but it is the emptiness inside that holds whatever we want." - Lao Tzu
