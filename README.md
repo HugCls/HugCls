@@ -41,4 +41,4 @@
 
 
 
-2025-02-13: "We shape clay into a pot, but it is the emptiness inside that holds whatever we want." - Lao Tzu
+2025-02-14: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
