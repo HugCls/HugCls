@@ -41,4 +41,4 @@
 
 
 
-2025-02-14: "If you can handle rejection, you'll learn to get everything you want." - Tony Robbins
+2025-02-15: "To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace." - Morihei Ueshiba
