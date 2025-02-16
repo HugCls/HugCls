@@ -41,4 +41,4 @@
 
 
 
-2025-02-15: "To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace." - Morihei Ueshiba
+2025-02-16: "Enthusiasm is a vital element toward the individual success of every man or woman." - Conrad Hilton
