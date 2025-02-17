@@ -41,4 +41,4 @@
 
 
 
-2025-02-16: "Enthusiasm is a vital element toward the individual success of every man or woman." - Conrad Hilton
+2025-02-17: "Insanity: doing the same thing over and over again and expecting different results." - Albert Einstein
