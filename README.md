@@ -41,4 +41,4 @@
 
 
 
-2025-02-17: "Insanity: doing the same thing over and over again and expecting different results." - Albert Einstein
+2025-02-18: "Do your duty and a little more and the future will take care of itself." - Andrew Carnegie
