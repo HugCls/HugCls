@@ -41,4 +41,4 @@
 
 
 
-2025-02-19: "Life is one long process of getting tired." - Samuel Butler
+2025-02-20: "Insanity: doing the same thing over and over again and expecting different results." - Albert Einstein
