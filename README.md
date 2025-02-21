@@ -41,4 +41,4 @@
 
 
 
-2025-02-20: "Insanity: doing the same thing over and over again and expecting different results." - Albert Einstein
+2025-02-21: "Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble." - Robert Greene
