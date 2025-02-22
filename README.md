@@ -41,4 +41,4 @@
 
 
 
-2025-02-21: "Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble." - Robert Greene
+2025-02-22: "It is often safer to be in chains than to be free. " - Franz Kafka
