@@ -41,4 +41,4 @@
 
 
 
-2025-02-22: "It is often safer to be in chains than to be free. " - Franz Kafka
+2025-02-23: "Integrity is telling myself the truth. And honesty is telling the truth to other people." - Spencer Johnson
