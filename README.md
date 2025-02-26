@@ -41,4 +41,4 @@
 
 
 
-2025-02-25: "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present." - George Bernard Shaw
+2025-02-26: "To bear trials with a calm mind robs misfortune of its strength and burden." - Seneca
