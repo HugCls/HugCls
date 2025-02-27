@@ -41,4 +41,4 @@
 
 
 
-2025-02-26: "To bear trials with a calm mind robs misfortune of its strength and burden." - Seneca
+2025-02-27: "There are no second chances in life, except to feel remorse." - Carlos Ruiz Zafon
