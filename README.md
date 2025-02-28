@@ -41,4 +41,4 @@
 
 
 
-2025-02-27: "There are no second chances in life, except to feel remorse." - Carlos Ruiz Zafon
+2025-02-28: "New opinions are always suspected, and usually opposed, without any other reason but because they are not common." - John Locke
