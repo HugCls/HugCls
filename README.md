@@ -41,4 +41,4 @@
 
 
 
-2025-02-28: "New opinions are always suspected, and usually opposed, without any other reason but because they are not common." - John Locke
+2025-03-01: "Don't seek, don't search, don't ask, don't knock, don't demand - relax." - Osho
