@@ -41,4 +41,4 @@
 
 
 
-2025-03-01: "Don't seek, don't search, don't ask, don't knock, don't demand - relax." - Osho
+2025-03-02: "You need a plan to build a house. To build a life, it is even more important to have a plan or goal." - Zig Ziglar
