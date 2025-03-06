@@ -41,4 +41,4 @@
 
 
 
-2025-03-05: "Choose to be optimistic, it feels better." - Dalai Lama
+2025-03-06: "If you run you stand a chance of losing, but if you don't run you've already lost." - Barack Obama
