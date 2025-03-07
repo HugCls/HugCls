@@ -41,4 +41,4 @@
 
 
 
-2025-03-06: "If you run you stand a chance of losing, but if you don't run you've already lost." - Barack Obama
+2025-03-07: "True friendship ought never to conceal what it thinks. " - St. Jerome
