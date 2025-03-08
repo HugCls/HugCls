@@ -41,4 +41,4 @@
 
 
 
-2025-03-07: "True friendship ought never to conceal what it thinks. " - St. Jerome
+2025-03-08: "The search for happiness is one of the chief sources of unhappiness." - Eric Hoffer
