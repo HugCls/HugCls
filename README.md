@@ -41,4 +41,4 @@
 
 
 
-2025-03-09: "Making your mark on the world is hard. If it were easy, everybody would do it." - Barack Obama
+2025-03-10: "No valid plans for the future can be made by those who have no capacity for living now." - Alan Watts
