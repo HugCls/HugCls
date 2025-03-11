@@ -41,4 +41,4 @@
 
 
 
-2025-03-10: "No valid plans for the future can be made by those who have no capacity for living now." - Alan Watts
+2025-03-11: "A good teacher opens the door for you, but you must enter the room by yourself." - Zen Proverb
