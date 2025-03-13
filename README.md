@@ -41,4 +41,4 @@
 
 
 
-2025-03-12: "Don't worry about being successful, but work toward being significant and the success will naturally follow." - Oprah Winfrey
+2025-03-13: "Know the rules well, so you can break them effectively." - Dalai Lama
