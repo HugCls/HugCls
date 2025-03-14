@@ -41,4 +41,4 @@
 
 
 
-2025-03-13: "Know the rules well, so you can break them effectively." - Dalai Lama
+2025-03-14: "A person who does not read is no better than one cannot read." - Earl Nightingale
