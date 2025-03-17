@@ -41,4 +41,4 @@
 
 
 
-2025-03-16: "The only thing we have to fear is fear itself." - Franklin D. Roosevelt
+2025-03-17: "It's not what happens to you, but how you react to it that matters." - Epictetus
