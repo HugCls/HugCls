@@ -41,4 +41,4 @@
 
 
 
-2025-03-18: "A good character is the best tombstone. Carve your name on hearts, not on marble." - Charles Spurgeon
+2025-03-19: "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves." - Lao Tzu
