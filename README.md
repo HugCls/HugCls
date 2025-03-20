@@ -41,4 +41,4 @@
 
 
 
-2025-03-19: "A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves." - Lao Tzu
+2025-03-20: "The primary cause of unhappiness is never the situation but your thoughts about it." - Eckhart Tolle
