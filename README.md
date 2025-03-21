@@ -41,4 +41,4 @@
 
 
 
-2025-03-20: "The primary cause of unhappiness is never the situation but your thoughts about it." - Eckhart Tolle
+2025-03-21: "Death and life have their determined appointments; riches and honors depend upon heaven. " - Confucius
