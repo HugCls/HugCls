@@ -41,4 +41,4 @@
 
 
 
-2025-03-22: "Talent is luck. The important thing in life is courage." - Woody Allen
+2025-03-23: "What we know is a drop, what we don't know is an ocean. " - Isaac Newton
