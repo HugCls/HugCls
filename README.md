@@ -41,4 +41,4 @@
 
 
 
-2025-03-24: "If we will be quiet and ready enough, we shall find compensation in every disappointment." - Henry David Thoreau
+2025-03-25: "In the middle of chaos lies opportunity.  " - Bruce Lee
