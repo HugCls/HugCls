@@ -41,4 +41,4 @@
 
 
 
-2025-03-25: "In the middle of chaos lies opportunity.  " - Bruce Lee
+2025-03-26: "The least deviation from truth will be multiplied later." - Aristotle
