@@ -41,4 +41,4 @@
 
 
 
-2025-03-30: "You only live once, but if you do it right, once is enough." - Mae West
+2025-03-31: "Unless you're ashamed of yourself now and then, you're not honest." - William Faulkner
