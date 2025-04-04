@@ -41,4 +41,4 @@
 
 
 
-2025-04-03: "Peace is letting it be. Letting life flow, letting emotions flow through you." - Kamal Ravikant
+2025-04-04: "Short cuts make long delays." - J.R.R. Tolkien
