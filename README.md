@@ -41,4 +41,4 @@
 
 
 
-2025-04-04: "Short cuts make long delays." - J.R.R. Tolkien
+2025-04-05: "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little." - Criss Jami
