@@ -41,4 +41,4 @@
 
 
 
-2025-04-05: "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little." - Criss Jami
+2025-04-06: "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them." - Epictetus
