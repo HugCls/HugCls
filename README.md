@@ -41,4 +41,4 @@
 
 
 
-2025-04-06: "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them." - Epictetus
+2025-04-07: "Stop comparing yourself to others and focus on your own improvement." - Lolly Daskal
