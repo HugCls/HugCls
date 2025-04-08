@@ -41,4 +41,4 @@
 
 
 
-2025-04-07: "Stop comparing yourself to others and focus on your own improvement." - Lolly Daskal
+2025-04-08: "Absence makes the heart grow fonder." - Eleanor Roosevelt
