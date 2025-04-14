@@ -41,4 +41,4 @@
 
 
 
-2025-04-13: "Heal the past, live the present, dream the future." - Mary Engelbreit
+2025-04-14: "Life comes at us in waves. We can't predict or control those waves, but we can learn to surf." - Dan Millman
