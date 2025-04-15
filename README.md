@@ -41,4 +41,4 @@
 
 
 
-2025-04-14: "Life comes at us in waves. We can't predict or control those waves, but we can learn to surf." - Dan Millman
+2025-04-15: "There are no second chances in life, except to feel remorse." - Carlos Ruiz Zafon
