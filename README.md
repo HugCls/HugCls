@@ -41,4 +41,4 @@
 
 
 
-2025-04-15: "There are no second chances in life, except to feel remorse." - Carlos Ruiz Zafon
+2025-04-16: "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next." - Herbert Hoover
