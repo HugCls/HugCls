@@ -41,4 +41,4 @@
 
 
 
-2025-04-16: "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next." - Herbert Hoover
+2025-04-17: "Attitude drives actions. Actions drive results. Results drive lifestyles." - Jim Rohn
