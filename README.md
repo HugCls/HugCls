@@ -41,4 +41,4 @@
 
 
 
-2025-04-17: "Attitude drives actions. Actions drive results. Results drive lifestyles." - Jim Rohn
+2025-04-18: "Take away love and our earth is a tomb." - Robert Browning
