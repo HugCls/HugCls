@@ -41,4 +41,4 @@
 
 
 
-2025-04-20: "He who leaves the game wins it." - Nicolas Chamfort
+2025-04-21: "The trouble with most of us is that we'd rather be ruined by praise than saved by criticism." - Norman Vincent Peale
