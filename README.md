@@ -41,4 +41,4 @@
 
 
 
-2025-04-23: "When the world pushes you to your knees, you're in the perfect position to pray." - Rumi
+2025-04-24: "Time heals what reason cannot.  " - Seneca
