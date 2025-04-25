@@ -41,4 +41,4 @@
 
 
 
-2025-04-24: "Time heals what reason cannot.  " - Seneca
+2025-04-25: "If you build the guts to do something, anything, then you better save enough to face the consequences." - Criss Jami
