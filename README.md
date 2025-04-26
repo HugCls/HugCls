@@ -41,4 +41,4 @@
 
 
 
-2025-04-25: "If you build the guts to do something, anything, then you better save enough to face the consequences." - Criss Jami
+2025-04-26: "In the midst of chaos, there is also opportunity." - Sun Tzu
