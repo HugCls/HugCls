@@ -41,4 +41,4 @@
 
 
 
-2025-05-02: "If you've never eaten while crying you don t know what life tastes like." - Johann Wolfgang von Goethe
+2025-05-03: "Life is a gift. Never forget to enjoy and bask in every moment you are in." - Celestine Chua
