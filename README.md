@@ -41,4 +41,4 @@
 
 
 
-2025-05-06: "The nearer a man comes to a calm mind, the closer he is to strength." - Marcus Aurelius
+2025-05-07: "A warrior does not give up what he loves, he finds the love in what he does." - Dan Millman
