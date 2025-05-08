@@ -41,4 +41,4 @@
 
 
 
-2025-05-07: "A warrior does not give up what he loves, he finds the love in what he does." - Dan Millman
+2025-05-08: "Quiet people have the loudest minds." - Stephen Hawking
