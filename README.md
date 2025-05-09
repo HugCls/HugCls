@@ -41,4 +41,4 @@
 
 
 
-2025-05-08: "Quiet people have the loudest minds." - Stephen Hawking
+2025-05-09: "The birth of the mind is the death of the senses." - Dan Millman
