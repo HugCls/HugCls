@@ -41,4 +41,4 @@
 
 
 
-2025-05-09: "The birth of the mind is the death of the senses." - Dan Millman
+2025-05-10: "When you have to make a choice and don't make it, that is in itself a choice." - William James
