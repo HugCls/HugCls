@@ -41,4 +41,4 @@
 
 
 
-2025-05-10: "When you have to make a choice and don't make it, that is in itself a choice." - William James
+2025-05-11: "People inspire you, or they drain you. Pick them wisely." - Les Brown
