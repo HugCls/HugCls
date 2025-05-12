@@ -41,4 +41,4 @@
 
 
 
-2025-05-11: "People inspire you, or they drain you. Pick them wisely." - Les Brown
+2025-05-12: "Closing your eyes and listening to silence is self-care." - Maxime Lagace
