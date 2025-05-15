@@ -41,4 +41,4 @@
 
 
 
-2025-05-14: "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world." - Henry Ward Beecher
+2025-05-15: "You purchase pain with all that joy can give and die of nothing but a rage to live." - Alexander Pope
