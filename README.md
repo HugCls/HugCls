@@ -41,4 +41,4 @@
 
 
 
-2025-05-15: "You purchase pain with all that joy can give and die of nothing but a rage to live." - Alexander Pope
+2025-05-16: "Loss is nothing else but change and change is nature's delight." - Marcus Aurelius
