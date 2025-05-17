@@ -41,4 +41,4 @@
 
 
 
-2025-05-16: "Loss is nothing else but change and change is nature's delight." - Marcus Aurelius
+2025-05-17: "He who knows, does not speak. He who speaks, does not know." - Lao Tzu
