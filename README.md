@@ -41,4 +41,4 @@
 
 
 
-2025-05-17: "He who knows, does not speak. He who speaks, does not know." - Lao Tzu
+2025-05-18: "Imagination is everything. It is the preview of life's coming attractions." - Albert Einstein
