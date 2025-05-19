@@ -41,4 +41,4 @@
 
 
 
-2025-05-18: "Imagination is everything. It is the preview of life's coming attractions." - Albert Einstein
+2025-05-19: "Character is the result of two things: mental attitude and the way we spend our time." - Elbert Hubbard
