@@ -41,4 +41,4 @@
 
 
 
-2025-05-20: "Love is the energy of life." - Robert Browning
+2025-05-21: "Conflict cannot survive without your participation. " - Wayne Dyer
