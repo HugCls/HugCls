@@ -41,4 +41,4 @@
 
 
 
-2025-05-21: "Conflict cannot survive without your participation. " - Wayne Dyer
+2025-05-22: "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results." - Peter Drucker
