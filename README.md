@@ -41,4 +41,4 @@
 
 
 
-2025-05-24: "I can think of nothing less pleasurable than a life devoted to pleasure." - John D. Rockefeller
+2025-05-25: "It all depends on what you choose to believe." - Spencer Johnson
