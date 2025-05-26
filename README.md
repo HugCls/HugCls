@@ -41,4 +41,4 @@
 
 
 
-2025-05-25: "It all depends on what you choose to believe." - Spencer Johnson
+2025-05-26: "You cannot swim for new horizons until you have courage to lose sight of the shore." - William Faulkner
