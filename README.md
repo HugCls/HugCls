@@ -41,4 +41,4 @@
 
 
 
-2025-05-28: "We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet." - Thich Nhat Hanh
+2025-05-29: "Winning isn't always championships." - Michael Jordan
