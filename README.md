@@ -41,4 +41,4 @@
 
 
 
-2025-05-29: "Winning isn't always championships." - Michael Jordan
+2025-05-30: "Not everything that weighs you down is yours to carry." - Unknown
