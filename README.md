@@ -41,4 +41,4 @@
 
 
 
-2025-05-31: "No one ever said life was fair. Just Eventful." - Carol Burnett
+2025-06-01: "Sometimes you have to shut your eyes, so you can see the real beauty." - Kilian Jornet
