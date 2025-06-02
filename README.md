@@ -41,4 +41,4 @@
 
 
 
-2025-06-01: "Sometimes you have to shut your eyes, so you can see the real beauty." - Kilian Jornet
+2025-06-02: "If you genuinely want something, don't wait for it - teach yourself." - Gurbaksh Chahal
