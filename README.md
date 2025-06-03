@@ -41,4 +41,4 @@
 
 
 
-2025-06-02: "If you genuinely want something, don't wait for it - teach yourself." - Gurbaksh Chahal
+2025-06-03: "But better die than live mechanically a life that is a repetition of repetitions." - D. H. Lawrence
