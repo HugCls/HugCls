@@ -41,4 +41,4 @@
 
 
 
-2025-06-03: "But better die than live mechanically a life that is a repetition of repetitions." - D. H. Lawrence
+2025-06-04: "Progress comes to those who train and train; reliance on secret techniques will get you nowhere." - Morihei Ueshiba
