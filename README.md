@@ -41,4 +41,4 @@
 
 
 
-2025-06-05: "Smile, breathe and go slowly." - Thich Nhat Hanh
+2025-06-06: "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on." - Steve Maraboli
