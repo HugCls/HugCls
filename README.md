@@ -41,4 +41,4 @@
 
 
 
-2025-06-06: "It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on." - Steve Maraboli
+2025-06-07: "I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars." - Og Mandino
