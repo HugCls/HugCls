@@ -41,4 +41,4 @@
 
 
 
-2025-06-11: "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!" - Robert Kiyosaki
+2025-06-12: "Would you rather learn to deal with the truth now than be forced to do so later on?" - Celestine Chua
