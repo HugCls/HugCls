@@ -41,4 +41,4 @@
 
 
 
-2025-06-12: "Would you rather learn to deal with the truth now than be forced to do so later on?" - Celestine Chua
+2025-06-13: "The only thing worse than being blind is having sight but no vision." - Helen Keller
