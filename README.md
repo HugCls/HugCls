@@ -41,4 +41,4 @@
 
 
 
-2025-06-13: "The only thing worse than being blind is having sight but no vision." - Helen Keller
+2025-06-14: "No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain." - Josh Waitzkin
