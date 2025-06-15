@@ -41,4 +41,4 @@
 
 
 
-2025-06-14: "No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain." - Josh Waitzkin
+2025-06-15: "The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened." - Kamal Ravikant
