@@ -41,4 +41,4 @@
 
 
 
-2025-06-16: "Some people feel the rain. Others just get wet. " - Bob Dylan
+2025-06-17: "We are most nearly ourselves when we achieve the seriousness of the child at play." - Heraclitus
