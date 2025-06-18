@@ -41,4 +41,4 @@
 
 
 
-2025-06-17: "We are most nearly ourselves when we achieve the seriousness of the child at play." - Heraclitus
+2025-06-18: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
