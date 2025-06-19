@@ -41,4 +41,4 @@
 
 
 
-2025-06-18: "It is dangerous to be right in matters on which the established authorities are wrong." - Voltaire
+2025-06-19: "Give a girl the right shoes, and she can conquer the world." - Bette Midler
