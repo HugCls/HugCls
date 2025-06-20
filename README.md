@@ -41,4 +41,4 @@
 
 
 
-2025-06-19: "Give a girl the right shoes, and she can conquer the world." - Bette Midler
+2025-06-20: "No one ever is defeated until defeat has been accepted as a reality." - Napoleon Hill
