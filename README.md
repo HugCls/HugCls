@@ -41,4 +41,4 @@
 
 
 
-2025-06-21: "Live your life and forget your age." - Norman Vincent Peale
+2025-06-22: "Sometimes it is harder to deprive oneself of a pain than of a pleasure." - F. Scott Fitzgerald
