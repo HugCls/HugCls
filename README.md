@@ -41,4 +41,4 @@
 
 
 
-2025-06-22: "Sometimes it is harder to deprive oneself of a pain than of a pleasure." - F. Scott Fitzgerald
+2025-06-23: "Don't seek, don't search, don't ask, don't knock, don't demand - relax." - Osho
