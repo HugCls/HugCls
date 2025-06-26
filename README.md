@@ -41,4 +41,4 @@
 
 
 
-2025-06-25: "When asked, how do you write? I invariably answer, one word at a time." - Stephen King
+2025-06-26: "Leadership starts at the top." - Morgan Wootten
