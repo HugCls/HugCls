@@ -41,4 +41,4 @@
 
 
 
-2025-06-26: "Leadership starts at the top." - Morgan Wootten
+2025-06-27: "Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do." - Nelson Mandela
