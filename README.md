@@ -41,4 +41,4 @@
 
 
 
-2025-06-28: "The decisions of our past are the architects of our present." - Dan Brown
+2025-06-29: "Success and failure come and go, but don't let them define you. It's who you are that matters." - Kamal Ravikant
