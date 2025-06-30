@@ -41,4 +41,4 @@
 
 
 
-2025-06-29: "Success and failure come and go, but don't let them define you. It's who you are that matters." - Kamal Ravikant
+2025-06-30: "Life can be the scariest and most beautiful thing simultaneously." - Maxime Lagace
