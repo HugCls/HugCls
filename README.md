@@ -41,4 +41,4 @@
 
 
 
-2025-07-03: "People seldom do what they believe in. They do what is convenient, then repent." - Bob Dylan
+2025-07-04: "Just do what must be done. This may not be happiness but it is greatness." - George Bernard Shaw
