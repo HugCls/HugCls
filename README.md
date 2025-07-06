@@ -41,4 +41,4 @@
 
 
 
-2025-07-05: "The more you trust yourself, the less you compare yourself to others." - Roy T. Bennett
+2025-07-06: "The more something threatens your identity, the more you will avoid it." - Mark Manson
