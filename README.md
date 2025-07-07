@@ -41,4 +41,4 @@
 
 
 
-2025-07-06: "The more something threatens your identity, the more you will avoid it." - Mark Manson
+2025-07-07: "Learn the rules like a pro, so you can break them like an artist." - Pablo Picasso
