@@ -41,4 +41,4 @@
 
 
 
-2025-07-07: "Learn the rules like a pro, so you can break them like an artist." - Pablo Picasso
+2025-07-08: "Most of us will do anything to avoid facing ourselves." - Lolly Daskal
