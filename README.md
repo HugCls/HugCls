@@ -41,4 +41,4 @@
 
 
 
-2025-07-08: "Most of us will do anything to avoid facing ourselves." - Lolly Daskal
+2025-07-09: "Faith is taking the first step even when you don't see the whole staircase." - Martin Luther King, Jr.
