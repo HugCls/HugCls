@@ -41,4 +41,4 @@
 
 
 
-2025-07-11: "He who cheats the earth will be cheated by the earth." - Chinese Proverb
+2025-07-12: "One must be deeply aware of the impermanence of the world." - Dogen
