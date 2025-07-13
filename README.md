@@ -41,4 +41,4 @@
 
 
 
-2025-07-12: "One must be deeply aware of the impermanence of the world." - Dogen
+2025-07-13: "Follow your heart, listen to your inner voice, stop caring about what others think." - Roy T. Bennett
