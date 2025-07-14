@@ -41,4 +41,4 @@
 
 
 
-2025-07-13: "Follow your heart, listen to your inner voice, stop caring about what others think." - Roy T. Bennett
+2025-07-14: "Never let the fear of striking out keep you from playing the game." - Babe Ruth
