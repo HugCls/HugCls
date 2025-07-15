@@ -41,4 +41,4 @@
 
 
 
-2025-07-14: "Never let the fear of striking out keep you from playing the game." - Babe Ruth
+2025-07-15: "Facts are the enemy of truth. " - Miguel de Cervantes
