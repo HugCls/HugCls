@@ -41,4 +41,4 @@
 
 
 
-2025-07-20: "A man that flies from his fear may find that he has only taken a short cut to meet it." - J.R.R. Tolkien
+2025-07-21: "The most important things are the hardest to say." - Stephen King
