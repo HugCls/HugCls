@@ -41,4 +41,4 @@
 
 
 
-2025-07-23: "Unless a man is master of his soul, all other kinds of mastery amount to little." - Theodore Roosevelt
+2025-07-24: "There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose." - Elbert Hubbard
