@@ -41,4 +41,4 @@
 
 
 
-2025-07-27: "Supreme excellence consists of breaking the enemy's resistance without fighting." - Sun Tzu
+2025-07-28: "You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead?" - Seneca
