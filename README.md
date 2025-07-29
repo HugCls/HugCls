@@ -41,4 +41,4 @@
 
 
 
-2025-07-28: "You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead?" - Seneca
+2025-07-29: "Here is the test to find whether your mission on earth is finished. If you're alive, it isn't." - Richard Bach
