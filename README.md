@@ -41,4 +41,4 @@
 
 
 
-2025-08-02: "We are all born ignorant, but one must work hard to remain stupid." - Benjamin Franklin
+2025-08-03: "It is startling to realize how much unbelief is necessary to make belief possible." - Eric Hoffer
