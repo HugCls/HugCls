@@ -41,4 +41,4 @@
 
 
 
-2025-08-03: "It is startling to realize how much unbelief is necessary to make belief possible." - Eric Hoffer
+2025-08-04: "Muddy water is best cleared by leaving it alone." - Alan Watts
