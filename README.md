@@ -41,4 +41,4 @@
 
 
 
-2025-08-07: "He who is untrue to his own cause cannot command the respect of others." - Albert Einstein
+2025-08-08: "Some people want it to happen, some wish it would happen, others make it happen." - Michael Jordan
