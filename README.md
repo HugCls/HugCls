@@ -41,4 +41,4 @@
 
 
 
-2025-08-08: "Some people want it to happen, some wish it would happen, others make it happen." - Michael Jordan
+2025-08-09: "What people say, what people do, and what they say they do are entirely different things. " - Margaret Mead
