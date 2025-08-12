@@ -41,4 +41,4 @@
 
 
 
-2025-08-11: "Life is what happens to you while you're busy making other plans." - John Lennon
+2025-08-12: "It is startling to realize how much unbelief is necessary to make belief possible." - Eric Hoffer
