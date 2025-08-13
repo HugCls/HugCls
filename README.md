@@ -41,4 +41,4 @@
 
 
 
-2025-08-12: "It is startling to realize how much unbelief is necessary to make belief possible." - Eric Hoffer
+2025-08-13: "There is always risk, so learn to manage risk instead of avoiding it." - Robert Kiyosaki
