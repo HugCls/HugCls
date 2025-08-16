@@ -41,4 +41,4 @@
 
 
 
-2025-08-15: "You must find the place inside yourself where nothing is impossible." - Les Brown
+2025-08-16: "Happiness depends upon ourselves." - Aristotle
