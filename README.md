@@ -41,4 +41,4 @@
 
 
 
-2025-08-17: "Everyone you admire was once a beginner." - Jack Butcher
+2025-08-18: "Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task." - William James
