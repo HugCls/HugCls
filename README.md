@@ -41,4 +41,4 @@
 
 
 
-2025-08-22: "The strength of a wall is neither greater nor less than the courage of the men who defend it. " - Genghis Khan
+2025-08-23: "I hear and I forget. I see and I remember. I do and I understand. " - Confucius
