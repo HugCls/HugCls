@@ -41,4 +41,4 @@
 
 
 
-2025-08-24: "Information changes your mind. Action changes your circumstances." - Jack Butcher
+2025-08-25: "The quality of your commitments will determine the course of your life." - Ralph Marston
