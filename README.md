@@ -41,4 +41,4 @@
 
 
 
-2025-08-29: "Surrender to what is. Let go of what was. Have faith in what will be." - Sonia Ricotti
+2025-08-30: "You must find the place inside yourself where nothing is impossible." - Les Brown
